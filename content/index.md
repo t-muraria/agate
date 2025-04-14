@@ -12,7 +12,7 @@ This is yet another iteration of my carving a constellation into the stars flick
 ---
 
 >[!info] NEW
->[[Parallax]] - a text to accompany the video. (link)
+>[[Parallax]] - a text to accompany the [video](https://youtu.be/8FMzqeFfe8U).
 
 ---
 

@@ -4,7 +4,7 @@ tags:
 ---
 gods, it's been... not a decade quite yet, but over half that, since i had to *script* a video. i'm so surprised this came together as well as it did.
 
-> [!info] This is the companion piece to [a video about parallax.](needs youtube link).
+> [!info] This is the companion piece to [a video about parallax.](https://youtu.be/8FMzqeFfe8U).
 > I do suggest checking that out together, so this makes more sense, but hey! You do you.
 
 We are now at... 1, 2, 3, 5, 6 layers? Maybe 7? And deeper we dive.
