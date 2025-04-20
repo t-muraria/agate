@@ -1,3 +1,7 @@
+---
+tags:
+  - scrawls
+---
 i've been getting back into magic recently. now, weirdly enough, that statement coincides with me *trying out* Magic: The Gathering, but that's not exactly what i'm talking about. magic is...
 
 well, okay. Magic/k. Witchcraft. Sorcery. i'm condensing all that shit down into 'magic', lowercase, because i *am* lowercase and that makes it easier to talk about. i am not someone who aspires to cast Thunderbolt or use a Song of Storms to affect the weather, but i've always had a vested interest in systems of magic that play the line between ascribing one's will onto the world and researching things that 'science' generally wouldn't cover.
