@@ -18,9 +18,7 @@ This is yet another iteration of my carving a constellation into the stars flick
 
 > [!tldr] Waypoints
 
-#scrawls 
-#apochrypha
-#reminiscence
+#scrawls | #apochrypha | #reminiscence
 
 > [!question] Want to pass the threshold again?
 > [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) [Go Back.](https://rinion.studio/) 
