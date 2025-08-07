@@ -7,12 +7,12 @@ title: A well-kept fragment.
 
 Welcome !
 
-This is yet another iteration of my carving a constellation into the stars flickering on server racks, finally spreading out beyond a single URL. one day we'll add in the portfolio... somewhere.
+This is yet another iteration of my carving a constellation into the stars flickering on server racks, finally spreading out beyond a single URL. This is exclusively for writing, there are no images here. The sketchbook can be found back from the main site, or at [location undefined, check back later!].
 
 ---
 
 >[!info] NEW
->[[Parallax]] - a text to accompany the [video](https://youtu.be/8FMzqeFfe8U).
+> [[Spoil everything, forever.]]
 
 ---
 
