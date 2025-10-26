@@ -7,12 +7,12 @@ title: A well-kept fragment.
 
 Welcome !
 
-This is yet another iteration of my carving a constellation into the stars flickering on server racks, finally spreading out beyond a single URL. This is exclusively for writing, there are no images here. The sketchbook can be found back from the main site, or at [location undefined, check back later!].
+This is yet another iteration of my carving a constellation into the stars flickering on server racks, finally spreading out beyond a single URL. This is exclusively for writing, there are no images here. Most of the images we upload are available statically at [the imageboard](https://ib.rinion.studio).
 
 ---
 
 >[!info] NEW
-> [[Spoil everything, forever.]]
+> [[dovecote release log]] - for [dovecote](https://rinions.itch.io/dovecote)
 
 ---
 
