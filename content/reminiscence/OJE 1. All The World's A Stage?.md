@@ -80,7 +80,7 @@ created: "20251104"
 ⏻ Gnarlwood spins on a heel, stopping her forward momentum from carrying her right down the stairs, but not approaching the wall herself.
 
 > [!info] (for our readers)
-> The friendly nickname of 'caster' crosses the broadcast nature of many Armatures with radio elements, and Wish's own instrument on its back in that case: a CRTelecaster. The Imp enjoys its shows and music the most, and Echo found the experience of getting nicknamed rather endearing.
+> The friendly nickname of 'caster' crosses the mechanical nature of many Armatures with radio elements, and Wish's own instrument on its back in that case: a CRTelecaster. The Imp enjoys its shows and music the most, and Echo found the experience of getting nicknamed rather endearing.
 
 > `Found, no. Noticed, yes. Likely the namesake to this place. Makes mee wonder what it houses.`
 
