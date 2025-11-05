@@ -1,3 +1,9 @@
+---
+tags:
+  - apochrypha
+created: "20251026"
+---
+
 > i think it's impossible for me to not make A Game.
 > - 🌙, 24th of May 2025
 
