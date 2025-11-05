@@ -6,18 +6,18 @@ tags:
 created: "20251104"
 ---
 > [!quote] Ego - sasakure.UK
-> <ruby>君はまだ、生きてるの？<rt>Are you alive still, somewhere out there?</rt></ruby>
-> <ruby>うたはまだ、続いているの？<rt>Is that song still ringing out, where I can't hear it?</rt></ruby>
-> <ruby>この世界の隅っこで　まだ<rt>Have you found a small nook of our world to shore up in,</rt></ruby>
+> <ruby>君はまだ、生きてるの？<rt>Are you alive still, somewhere out there?</rt></ruby><br>
+> <ruby>うたはまだ、続いているの？<rt>Is that song still ringing out, where I can't hear it?</rt></ruby><br>
+> <ruby>この世界の隅っこで　まだ<rt>Have you found a small nook of our world to shore up in,</rt></ruby><br>
 > <ruby>くだらない事　考えてんの？<rt>And while away the rest of your days?</rt></ruby>
 
 > [!info] Just a heads-up...
 > This is an ongoing exploration of the system **Songs We Sing**, by gentrigger. The rulebook can be found at https://gentrigger.itch.io/songs-we-sing-demotape should you be interested.
 
 > [!quote] Ego - sasakure.UK
-> <ruby>…うたよまだ、続いてくれよ？<rt>My song, please, would you keep 'me' going?</rt></ruby>
-> <ruby>僕がもう居なくなっても<rt>Even if 'I' can no longer persist,</rt></ruby>
-> <ruby>君はそのまま、うたっていてくれよ<rt>Keep my song alive, as if I am still singing it,</rt></ruby>
+> <ruby>…うたよまだ、続いてくれよ？<rt>My song, please, would you keep 'me' going?</rt></ruby><br>
+> <ruby>僕がもう居なくなっても<rt>Even if 'I' can no longer persist,</rt></ruby><br>
+> <ruby>君はそのまま、うたっていてくれよ<rt>Keep my song alive, as if I am still singing it,</rt></ruby><br>
 > <ruby>この世界の隅っこで<rt>In some town I've never known.</rt></ruby>
 
 ---
