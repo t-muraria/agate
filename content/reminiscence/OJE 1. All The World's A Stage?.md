@@ -6,7 +6,7 @@ tags:
   - songswesing
 created: "20251104"
 ---
-[[One Joyful Elegy|Previous]] | [[OJE 2.|Next]]
+[[One Joyful Elegy|Previous]] | [[OJE 2. A Long Walk.|Next]]
 
 ---
 
@@ -527,4 +527,4 @@ POST-SESSION NOTES
 
 ---
 
-[[One Joyful Elegy|Previous]] | [[OJE 2.|Next]]
+[[One Joyful Elegy|Previous]] | [[OJE 2. A Long Walk.|Next]]
