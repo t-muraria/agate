@@ -3,6 +3,7 @@ tags:
   - reminiscence
   - tabletop
   - onejoyfulelegy
+  - songswesing
 created: "20251104"
 ---
 > [!quote] Ego - sasakure.UK

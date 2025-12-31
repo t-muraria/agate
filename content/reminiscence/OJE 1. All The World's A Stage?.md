@@ -3,9 +3,10 @@ tags:
   - reminiscence
   - tabletop
   - onejoyfulelegy
+  - songswesing
 created: "20251104"
 ---
-[[One Joyful Elegy|Previous]] | Next
+[[One Joyful Elegy|Previous]] | [[OJE 2.|Next]]
 
 ---
 
@@ -526,4 +527,4 @@ POST-SESSION NOTES
 
 ---
 
-[[One Joyful Elegy|Previous]] | Next
+[[One Joyful Elegy|Previous]] | [[OJE 2.|Next]]
