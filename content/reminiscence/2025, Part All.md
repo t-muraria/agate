@@ -36,7 +36,7 @@ We picked up a Supernote Nomad for note-taking, digital sketching, and ebook rea
 ideally, we can do a bit of a quarterly-ish thing about books in the new year, but as always, no promises!
 ## Things that are not quite Novels
 - Heaven Will Be Mine. extremely impactful for me.
-- 236 A.D. is a visual novel that was tentatively recommended to me by a friend, and I will also tentatively recommend it after finishing it. It's so unique, it's a bit of a mess, and it's got some parts that I found grating, but it's something I consider absolutely worth it.
+- 2236 A.D. is a visual novel that was tentatively recommended to me by a friend, and I will also tentatively recommend it after finishing it. It's so unique, it's a bit of a mess, and it's got some parts that I found grating, but it's something I consider absolutely worth it.
 - A webnovel that I am abbreviating to [Kamase-yaku](https://kakuyomu.jp/works/16817330668626245437) for now, as I haven't found a good english translated title abbreviation that captures it well enough. I'm very slowly working on a translation of the first "Chapter" (something like 42 or 48 posts?) because it's good practice and as much as I respect the attempt of a small team on ao3 to try and do the job better than a poorly-edited MTL of it that exists, that is ultimately still mostly a transl*iter*ation, and that bothers me. I don't have enough time or reading skill at the moment to just be an editor, so it's from scratch for now. Eventually, I'll upload it...somewhere.
 ## Comics
 It's true! Good comics exist! Setting up an RSS reader for the first time in ever has been good with keeping up with these.
