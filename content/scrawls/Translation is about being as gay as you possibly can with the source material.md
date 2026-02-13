@@ -54,6 +54,7 @@ The first way to translate something is to look at the text, and figure out what
 | 愛･爆破ッテロ        | Love・terrorist               |
 | 簡単になれば         | If it becomes simple         |
 | 埋まった  マター  マター | Buried  matter  matter       |
+
 Oh no! It's <u>boring</u>. Let's add some flair now. We want to see if we can fit things to the same rhythm and cadence of the original, since it's a song! This isn't always possible without twisting some things, but hey, we're here to sing. Also, this is where you start piecing together the sentences to start *saying* something.
 
 With this one, we've chosen to play this as a doctor introducing themself as if they're a media personality, or at the start of a TV show. The energy is over-the-top, and ideally, reassuring to the patient, to get them to open up.
@@ -64,6 +65,7 @@ With this one, we've chosen to play this as a doctor introducing themself as if 
 | 愛･爆破ッテロ        | Love・terrorist               | Here to bomb with love        |
 | 簡単になれば         | If it becomes simple         | Any worries I can             |
 | 埋まった  マター  マター | Buried  matter  matter       | To matter; What's the matter? |
+
 The additional difficulty here (as if we aren't already under enough constraints! damn!) is preserving *wordplay* whenever possible. This is present in the characterization, but the last line here and in some following lines are sort of a distorted echo of the last word. There's probably something more to that, if we wanted to keep digging, but for now, let's go down the list!
 
 | Original   | Boring                                        | "Gay"                        |
@@ -74,6 +76,7 @@ The additional difficulty here (as if we aren't already under enough constraints
 | 埋めた        | Buried                                        | You're buried,               |
 | メタ         | meta                                          | deep down                    |
 | メタ         | meta                                          | inside.                      |
+
 Am I allowed to say this is the hardest part of the entire song? オオトも is entirely confounding. It could be "friend", but I've seen another translation use "Auto-mode" while I was doing some more research on these Haraguchi's songs, and with *that* context this paragraph gets rewritten for probably the 7th time. Old wordplay gives way to new.
 
 Let's pick up the pace a bit, we're almost at the refrain!
@@ -85,6 +88,7 @@ Let's pick up the pace a bit, we're almost at the refrain!
 | 次期              | With time,                                                          |
 | には              | I'll patch                                                          |
 | 嘘に診えてクルゥ        | you up, in body and in mind!                                        |
+
 クルゥ is real interesting, and real important here, since it's basically the phrase for "going crazy" in various connotations slipped right into the end of an otherwise rather normal line. I still wonder if it's possible to go harder with the translation here, but alas. My limits.
 
 | Original       | Gay                                               |
@@ -103,6 +107,7 @@ Let's pick up the pace a bit, we're almost at the refrain!
 | ドウヤラ本心だと思った    | seems like you really do trust me well,           |
 | 本心だと思ったんだ!!    | really rely on me here,                           |
 | クチョォ           | don't you?                                        |
+
 タガメ is what initially had me approaching this as the Rorschach test, cut and dry, and while that symbolism is still *there* to some extent, one meaning has to win out or else the translation is confused about itself. And so, Implications™ win out here, with the test existing in inspiration and the visuals. It really is obvious in the MV, isn't it? Is that really Teto, Dr. Kidori, or just a shape that happens to look like her?
 
 To the end!
@@ -132,6 +137,7 @@ To the end!
 | ドウヤラ届いてない診たい  | Oh but you weren't focusing on them,                   |
 | 届いてない診たいネ゛    | weren't focusing on them, now                          |
 | クチョォ          | were you?                                              |
+
 This translation is not final, and may never be. It's just too much fun to poke at and try out different things. But it *is* gay, and will remain that way. There are ways to translate this that are less gay, and they are more boring for it. They aren't *saying* anything with the song the way the first one is, and they aren't vague in ways that leave room for interpretation, moreso confusion.
 
 There's so much to dig into for translations, and it's almost guaranteed to give you a better understanding of *both* languages in play! So, a request for all the people out there: please try just a little bit harder with each one. You might learn something.
