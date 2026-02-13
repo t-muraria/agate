@@ -505,6 +505,8 @@ td {
 }
 
 tr {
+  height: 1em;
+  font-size: 1em;
   border-bottom: 1px solid var(--lightgray);
   &:last-child {
     border-bottom: none;
