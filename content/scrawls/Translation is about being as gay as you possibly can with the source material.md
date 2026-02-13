@@ -30,7 +30,7 @@ Full stop.
 ## "What?"
 I meant what I said, but I guess I can also explain it.
 # Exhibit A (Igaku / [イガク - 重音テト by 原口沙輔](https://www.youtube.com/watch?v=F38EuG2dAyM))
-There are two existing translations of Igaku that we've done. They're a little bit out-dated by way of out becoming a lot better at doing all this, but they will be largely taken from the old document and just cleaned up one more time for this example.
+There are two existing translations of Igaku that we've done, both in concert with another friend to discuss things and work out rhythming and framing-ing. They're a little bit out-dated by way of our becoming a lot better at doing all this, but they will be largely taken from the old document and just cleaned up one more time for this example.
 
 Igaku, as a song, could be about any number of things, depending on how far you dig into it. In this way it's a lot like [重ねトマト缶](https://youtu.be/2nk4KNjK9qQ), which has some sort of vertical alignment alternative meaning going on in the lyrics that is sort of at odds with it being a song about stacking cans of tomato sauce to a fun rhythm. I don't understand that enough to explain it more, nor translate it in a way that I find acceptable.
 
