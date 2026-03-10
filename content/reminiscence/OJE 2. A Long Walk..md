@@ -5,7 +5,7 @@ tags:
   - onejoyfulelegy
   - songswesing
 ---
-[[One Joyful Elegy|First]] | [[OJE 1. All The World's A Stage?|Previous]] | Next
+[[One Joyful Elegy|First]] | [[OJE 1. All The World's A Stage?|Previous]] | [[OJE 3. Wider North Rock|Next]]
 
 ---
 
@@ -568,4 +568,4 @@ POST-SESSION NOTES
 
 ---
 
-[[One Joyful Elegy|First]] | [[OJE 1. All The World's A Stage?|Previous]] | Next
+[[One Joyful Elegy|First]] | [[OJE 1. All The World's A Stage?|Previous]] | [[OJE 3. Wider North Rock|Next]]

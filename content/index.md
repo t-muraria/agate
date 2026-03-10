@@ -9,10 +9,7 @@ Welcome !
 
 This is yet another iteration of my carving a constellation into the stars flickering on server racks, finally spreading out beyond a single URL. This is exclusively for writing, there are no images here. Most of the images we upload are available statically at [the imageboard](https://ib.rinion.studio).
 
----
-
->[!info] NEW
-> [[dovecote release log]] - for [dovecote](https://rinions.itch.io/dovecote)
+[RSS feed](https://log.rinion.studio/index.xml)
 
 ---
 
