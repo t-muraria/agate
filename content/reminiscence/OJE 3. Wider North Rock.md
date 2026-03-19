@@ -5,7 +5,7 @@ tags:
   - onejoyfulelegy
   - songswesing
 ---
-[[One Joyful Elegy|First]] | [[OJE 2. A Long Walk.|Previous]] | Next
+[[One Joyful Elegy|First]] | [[OJE 2. A Long Walk.|Previous]] | [[OJE 4. Drink Deep and Descend|Next]]
 
 ---
 
@@ -1035,4 +1035,4 @@ POST SESSION NOTES
 
 ---
 
-[[One Joyful Elegy|First]] | [[OJE 2. A Long Walk.|Previous]] | Next
+[[One Joyful Elegy|First]] | [[OJE 2. A Long Walk.|Previous]] | [[OJE 4. Drink Deep and Descend|Next]]
