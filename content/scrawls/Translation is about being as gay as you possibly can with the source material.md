@@ -3,6 +3,7 @@ tags:
   - scrawls
   - translation
   - lyrics
+created: "20260213"
 ---
 I think my first attempt at translyrics for personal use was around 3 years back. Possibly 4. The first one posted online was done in 2024, the rest are somewhere on local drives to be revisited some day.[^1] That first one is also the only time we've posted translyrics to date, since the state of the world and stuff has us busy elsewhere, but it's worth talking about here! Mostly because it's relevant to the other translation project ongoing, as well as this topic as a whole.
 
@@ -12,7 +13,7 @@ We've probably read a lot more translated content than most people do, and that 
 
 and of course, wayyyyy too much manga that we should have put down earlier.
 
-"Slop"[^2] can be enriching, but to be perfectly honest, it was filling a niche that has since been claimed by being creative (after a lot of mental health fixups and just escaping academia). Did give a lot of experience with various methods of translation, though, in a way that was similar to the 4kids era and ensuing debacle of disagreements online.
+The brain-empty stuff[^2] can be enriching, but to be perfectly honest, it was filling a niche that has since been claimed by being creative (after a lot of mental health fixups and just escaping academia). Did give a lot of experience with various methods of translation, though, in a way that was similar to the 4kids era and ensuing debacle of disagreements online.
 
 Never really watched all that much anime as a kid, for the record. Or anything on the TV. Downsides to not having good reception ~~or channels~~.
 
@@ -146,7 +147,7 @@ Now, I need to get back to translating [かませ役♂](https://kakuyomu.jp/wor
 
 [^1]: The original conceit was to start doing song covers. Personal priorities and the state of YouTube and getting very disconnected from social media culture all collaboratively killed that very dead, but the songs themselves are still worth translating just for the fun of it whenever we have some more time on our hands.
 
-[^2]: With as much respect as I can possibly give to the authors who make anything that is at all interesting. I am just so very tired of specific clichés, so the rest of the story has to do more heavy lifting. And usually it doesn't. But that's more to the point of general competence than any author's personal experience as a writer here.
+[^2]: With as much respect as I can possibly give to authors who make anything at all. I am just so very tired of specific clichés, so the rest of the story has to do more heavy lifting. And usually it doesn't. But that's more to the point of general competence than any author's personal experience as a writer here.
 
 [^3]: Oh, how I hate the grift.
 
