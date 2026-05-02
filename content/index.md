@@ -11,6 +11,8 @@ This is yet another iteration of my carving a constellation into the stars flick
 
 [RSS feed](https://log.rinion.studio/index.xml)
 
+[[Translations|Translations that we've done.]]
+
 ---
 
 > [!tldr] Waypoints

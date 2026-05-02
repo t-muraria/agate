@@ -1,0 +1,2 @@
+This page contains translations of articles or other written work in other languages that we have elected to upload for ease of access and sharing. If there are any issues with any translations or other comments, feel free to contact us by any known means (the most common is [email](mailto:rinion.atelier+tlcontact@gmail.com)).
+- [[“Foreclosure-Erasure” of Claims-Making by the Everyday Life as Taken for Granted - Discourse Analysis about “Fictosexual” as Sexuality that does not Conform to “Sexual Orientation”.pdf]] - Last updated May 01, 2026.
