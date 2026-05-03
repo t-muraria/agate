@@ -35,7 +35,7 @@ i'm going to instead think about writing a visual novel. or two. there's a coupl
 
 > [!info] ...
 
-> [!info] nothing ever will, though. "This will always be complete."
+> [!info] nothing ever will, though. "This will always be incomplete."
 > so...
 > we've just got to try our best.
 
