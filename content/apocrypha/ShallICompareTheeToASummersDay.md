@@ -1,6 +1,7 @@
 ---
 tags:
   - apochrypha
+created: "20260618"
 ---
 ⟡ | Hello.
 
@@ -30,7 +31,7 @@ If I compare me to a summer's day, how many would tack on the human face regardl
 
 ---
 
-I was planning to save this additional bit for a while longer yet, but as [[Untitled]] is going to take a monumental time to find any point of closure before we return to Wake in narrative, I decided I might as well bring this up as a neighbor to the topic.
+I was planning to save this additional bit for a while longer yet, but as [[Untitled (1)|Untitled]] is going to take a monumental time to find any point of closure before we return to Wake in narrative, I decided I might as well bring this up as a neighbor to the topic.
 
 I made many of the calls for the names in [[One Joyful Elegy]], particularly toward the end. But even as a group effort, I still wonder how it comes across when we break the paradigm of naming. I wonder if the intention gets across, without being explicitly named as it is currently.
 

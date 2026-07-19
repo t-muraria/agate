@@ -4,6 +4,7 @@ tags:
   - tabletop
   - songbirds
 description: a Songbirds 3e exploration.
+created: "20260602"
 ---
 # A Chisel, a Moon Pool.
 > [!quote] Reincarnation Apple - PinocchioP
@@ -622,4 +623,3 @@ Songbirds~
 [^2]: Maybe I've been overthinking it, but it's one of those things that's hard to ask about (Is this a way of asking about it? The suggestion box *is* open...). Perhaps it's a matter of confidence. I tend to stay away from the worries of publicity, and with them the idea that we should talk about things more often... But also, there really was a lot of difficulty balancing everything through OJE, and while I'm quite glad with how it went, I also can't wait to come back to it with a much better grasp of everything in light of both it and Untitled.
 
 [^3]: Hikari again! Hi. Dice rolls have been compacted to the dialog lines, but retain their (roll+modifier) formatting. The total is there to be summed up, but we just figured it'd be nice to see what we're *actually* rolling, and a vague idea of the stats in the background. Please consider this as speaking the result, but logged as the components.
-
