@@ -1,2 +1,4 @@
 This page contains translations of articles or other written work in other languages that we have elected to upload for ease of access and sharing. If there are any issues with any translations or other comments, feel free to contact us by any known means (the most common is [email](mailto:rinion.atelier+tlcontact@gmail.com)).
 - [[“Foreclosure-Erasure” of Claims-Making by the Everyday Life as Taken for Granted - Discourse Analysis about “Fictosexual” as Sexuality that does not Conform to “Sexual Orientation”.pdf]] - Last updated May 01, 2026.
+- *I reincarnated as a stepping stone (♂), but I won't give up on transitioning!* original by 不破ふわる - Original at https://kakuyomu.jp/works/16817330668626245437.
+	- [[First Passage — Awakening the Star-Reader]] - Last updated Aug 16, 2026. ([[First Passage — Awakening the Star-Reader.epub|EPUB]]) ([[First Passage — Awakening the Star-Reader.pdf|PDF]])
