@@ -1793,7 +1793,7 @@ I'm so glad we didn't end on any weird misunderstandings.
 
 
 
-## 10. The Pale-Blue Star and the Beautiful Girl[^20]
+# 10. The Pale-Blue Star and the Beautiful Girl[^20]
 
 One week.
 That is the length of time I, Aohoshi Miroku, had spent sharing a school with a boy named Narō Kei.
@@ -1827,7 +1827,7 @@ One of those students being Narō Kei, and the other...
 
 "*That thing* being the Enforcer over there!? N, Not possible. I could land a hit for sure, but there's no way I can do anything to take him down!"
 
-Toa-chan lifted her face away from the scope on her personal weapon—a field gun[^21]—and shook her head rapidly in denial.
+Toa-chan lifts her face away from the scope on her personal weapon—a field gun[^21]—and shakes her head rapidly in denial.
 
 "That would indeed be the problem..."
 
@@ -1839,27 +1839,27 @@ Rokuhara, one of the scarce few to have achieved that rank. She knew of his exis
 
 "Why is that man here... No, it's clearly for the DemonGear. Most likely."
 
-At this point in time, we were observing the situation through the collapsed ceiling. The space the two of them were fighting in looked to be the very one shown on that livestream last night, where the DemonGear had been sleeping. The only difference you could point to was that the tank the girl was sleeping in in the footage was now shattered, with nothing left inside it.
+We are currently observing the situation through the collapsed ceiling. The space the two of them were fighting in looks to be the very one shown on that livestream last night, where the DemonGear had been sleeping. The only difference I can point to is that the tank the girl was sleeping in in the footage is now shattered, with nothing left inside it.
 
 "Miroku-chan, what should we do? Mizuhi-chan looks like she can't step in either, and it's just a matter of time before Kei-kun...!"
 
-Honestly, just what led to Kei-kun being the one fighting down there, I have no way of knowing. Perhaps it was related to the DemonGear, or simply to try and protect Mizuhi. He was putting all of his efforts into defense and evasion, most likely to avoid giving Rokuhara more reasons to get heated. And just as much, to keep him away from Mizuhi as much as possible. Still... Though he was only dodging and doing nothing to swing back, his movements doing so were so elegant that I found myself impressed by that.
+Honestly, just what led to Kei-kun being the one fighting down there, I have no way of knowing. Perhaps it's related to the DemonGear, or simply to try and protect Mizuhi. He is putting all of his efforts into defense and evasion, most likely to avoid giving Rokuhara more reasons to get heated. And just as much, to keep him away from Mizuhi as much as possible. Still... Though he *is* only dodging and doing nothing to swing back, his movements doing so wereareso elegant that I find myself impressed by that.
 
 "Wow... I can barely follow the attacks, and he's dodging them all without so much as a stratch."
 
-Not just that. On top of those precise movements, Kei-kun also seemed to be having some sort of discussion with Rokuhara at the same time. It wasn't something we could make out from where we stood, but his expression showed that it was something serious.
+Not just that. On top of those precise movements, Kei-kun also seems to be having some sort of discussion with Rokuhara at the same time. It isn't something we can make out from where we stand, but his expression reflects that it was something serious.
 
 "Should we regroup with Mizuhi-chan and then retreat?"
 
-Toa-chan murmured that option.
+Toa-chan murmurs that option.
 
-It was certainly one thing we could have done. With the situation as it was, Mizuhi wasn't being considered one of the combatants—Kei-kun's movements were the proof of that. But just as I started to think, *Maybe we ought to do as Toa-chan suggests, and fall back*—
+It certainly is one thing we can consider. With the situation as it stands, Mizuhi isn't being considered one of the combatants—Kei-kun's movements are the proof of that. But just as I start to think, *Maybe we ought to do as Toa-chan suggests, and fall back*—
 
-Rokuhara stopped his assault. He seemed to have another short conversation with Kei-kun, then, irritated by something, threw aside his two weapons. Right after he did so, the blades transformed into the form of a girl.
+Rokuhara stops his assault. He seemed to have another short conversation with Kei-kun, then, irritated by something, threw aside his two weapons. Right after he did so, the blades transform into the form of a girl.
 
 ""Eh!?""
 
-Toa-chan and I raised our voices together in surprise, and then exchanged a glance.
+Toa-chan and I raise our voices together in surprise, and then exchange a glance.
 
 "Toa-chan, you saw that just now?"
 
@@ -1871,45 +1871,45 @@ Several rumors had sprung up once the existence of DemonGear was revealed to the
 
 "Uuu..."
 
-Returning to the scene in front of us, Rokuhara had given the girl some sort of command. The girl took a small amount of distance and then, touching the floor, began to do...something.
+Returning to the scene in front of us, Rokuhara had given the girl some sort of command. The girl takes a small amount of distance and then, touching the floor, begins to do...something.
 
-But just as I thought the fight had fully concluded, Rokuhara summoned a new weapon.
+But just as I think this means the fight had fully concluded, Rokuhara summons a new weapon.
 
 "Toa-chan."
 
 "Mm."
 
-Toa-chan and I had realized in the same moment that the strange pressure surrounding Rokuhara had vanished. If that was because he had just let go of the DemonGear he had been wielding...
+Toa-chan and I realize in the same moment that the strange pressure surrounding Rokuhara had vanished. If that is because he just let go of the DemonGear he had been wielding...
 
-This new sword was nothing more than the construct produced by his regular DiveGear, which opened up the smallest chance of victory for us. Mizuhi seemed to realize this as well, bringing up her own personal weapons—a set of twin pistols—and aiming them at Rokuhara.
+This new sword is nothing more than the construct produced by his regular DiveGear, which opened up the smallest chance of victory for us. Mizuhi seems to realize this as well, bringing up her own personal weapons—a set of twin pistols—and aiming them at Rokuhara.
 
 "Fire on my signal."
 
-Rokuhara took a stance with his sword and leapt forward. The remaining distance was about 10 meters. 5. 4. 3. 2—
+Rokuhara takes a stance with his sword and leapt forward. The remaining distance is about 10 meters. 5. 4. 3. 2—
 
 "Now."
 
-A howl of air tore past me, together with a ball of mana condensed like a model star rushing from the corner of my eye to the center of the room. It impacted, without the slightest error, directly between Rokuhara and Kei-kun.
+A howl of air tears past me, together with a ball of mana condensed like a model star rushing from the corner of my eye to the center of the room. It impacts, without the slightest error, directly between Rokuhara and Kei-kun.
 
-With a gap in their calculations made, I scooped Toa-chan up and brought us both down into the research facility itself.
+With a gap in their calculations made, I scoop Toa-chan up and bring us both down into the research facility itself.
 
 "...That's how it is, huh?"
 
-As Rokuhara recognized us approaching, he nodded as if in satisfaction.
+As Rokuhara recognizes us approaching, he nods as if in satisfaction.
 
 "Ya manage to pry Eina off me, and secretly get your own backup in here. Hahaha. Ya must hear from a lot of people you've got a nasty streak of your own, huh?"
 
 "I got that at my previous school so much that I got sick of it, in fact."
 
-Kei said that with a hint of self-deprecation, and his expression looked rather bitter.
+Kei says that with a hint of self-deprecation, and his expression looks rather bitter.
 
 "This sure would turn the tides normally, but I'm an S rank, remember? You should all know what that means. I can still kill you all without breaking a sweat."
 
-Bloodlust forced itself upon the entire area. It was of a kind entirely distinct from the sensation earlier that felt meant to suppress—This was a well-honed killing intent.
+Bloodlust forces itself upon the entire area. It's of a kind entirely distinct from the sensation earlier that felt meant to suppress—This is a well-honed killing intent.
 
-I raised my rapier, my personal weapon, and exchanged a glance with Toa-chan. She nodded, and moved her cannon's aim from Rokuhara to the girl standing just a ways off.
+I raise my rapier, my personal weapon, and exchange a glance with Toa-chan. She nods, and moves her cannon's aim from Rokuhara to the girl standing just a ways off.
 
-Despite that, Rokuhara didn't seem any more bothered. In fact, quite the contrary, he stared us down, and as if to mock our efforts, said:
+Despite that, Rokuhara doesn't seem any more bothered. In fact, quite the contrary, he stares us down, and as if to mock our efforts, says:
 
 "That one was a joke. You, what's your name?"
 
@@ -1917,73 +1917,73 @@ Despite that, Rokuhara didn't seem any more bothered. In fact, quite the contrar
 
 "Mm. Kei, it ain't fair that you're the only one here walking around studded with weak points. Can't have any fun with that. You've still got something else up your sleeve, don't ya?"
 
-Kei didn't answer.
-*Weak points*...could only possibly be referring to the three of us. Essentially, if he has to fight while making sure we're safe, then Kei-kun won't be able to fight at his best. The fact that there was nothing we could do about that sparked a deep anger in me.
+Kei-kun doesn't answer.
+*Weak points*...can only possibly be referring to the three of us. Essentially, if he has to fight while making sure we're safe, then he won't be able to fight at his best. The fact that there is nothing we can do about that sparks a deep anger in me.
 
 "Okay, Kei, you played every single card you had. And thanks to all that, you managed to drag your chances of winning—which, need I remind you, were 0%—up by a few measly points."
 
-Rokuhara applauded him, as if it was an award he was giving out, but the only response any of us could have to that was remaining on our guard. Of course, we all understood that if we made any moves, our defeat would be swift and decisive. Yet there was no world where running away was an option, so we kept our weapons ready and our stances firm.
+Rokuhara applauds him, as if giving out an award, but the only response any of us can have to that was remaining on our guard. Of course, we all understand that if we make any moves, our defeat will be swift and decisive. Yet there is no world where running away is an option, so we keep our weapons ready and our stances firm.
 
 "I have to respect the grit it takes to do that, so I'm gonna spare you all for the time being."
 
-Rokuhara, I am certain, glanced at us as he said that.
+Rokuhara, I am certain, glances at us as he said that.
 
 "I see."
 
-Kei responded, tersely. It was a tone—that I couldn't have imagined coming from someone as deferential and warmly spoken as him—that chilled to the bone.
+Kei-kun responds tersely. It's with a tone—that I couldn't have imagined coming from someone as deferential and warmly spoken as him—that chilled to the bone.
 *If things had played out differently, if we had not been here, then perhaps even against Rokuhara, Kei-kun might have been able to*—
 That is the sort of thoughts that tone gives rise to.
 
 "So then, shouldn't you have somewhere else to run off to?"
 
-Kei-kun spoke as if spitting those words out.
-Rokuhara shrugged, and called out the girl's name. Then, with an "Aight, let's get going", the two of them left the area.
+Kei-kun speaks as if spitting those words out.
+Rokuhara shrugs, and calls out the girl's name. Then, with an "Aight, let's get going", the two of them leave the area.
 
-Toa-chan let out a large breath from beside me, and lowered her artillery.
+Toa-chan lets out a large breath from beside me, and lowers her artillery.
 
-The time spent in tension had finally seen its end.
+The time spent in tension has finally seen its end.
 
 "Hooh."
 
-Kei-kun breathed out. In an instant, he had returned to the same him I had always seen. The serious, normal boy. But we had already recognized him to be something else.
+Kei-kun breathes out. In an instant, he returns to the same him I had always seen. The serious, normal boy. But we had already recognized him to be something else.
 
 "Kei, you..."
 
 Right in front of me, Mizuzhi speaks up. She is a girl who always approaches the truth head-on, no matter what it may be. It's a virtue I can be proud of as her childhood friend, and something I greatly respect about her.
 
-But this is one time it seemed it wasn't something to praise.
+But this is one time it seemed it isn't something to praise.
 
 "Ah."
 
 A very small voice.
 
-Neither Mizuhi nor Toa-chan noticed it—their attention was caught up in how abnormal he had just been. I was the only one who had caught the vocalization he let slip. It was something like the noise a small child makes when something they were hiding comes to light, or when someone understands they've completely lost.
+Neither Mizuhi nor Toa-chan notice it—their attention caught up in how abnormal he had just been. I am the only one who catches the vocalization he lets slip. Something like the noise a small child makes when something they were hiding comes to light, or when someone understands they've completely lost.
 
-It was a pitiful appearance, one that nearly brought me to tears as I recognized it.
+It's a pitiful appearance, one that nearly brought me to tears as I recognize it.
 
 "Well, you see, that was..."
 
-Kei-kun was desperately searching for the words. The feelings of bloodlust and intimidation from moments prior are nowhere to be found. How could anyone believe this boy here had just gone up against an S rank opponent, and even made it out unscathed?
+Kei-kun is desperately searching for the words. The feelings of bloodlust and intimidation from moments prior are nowhere to be found. How could anyone believe this boy here had just gone up against an S rank opponent, and even made it out unscathed?
 
-So I said, before I really realized: "Let's head back."
+So I say, before I really realized: "Let's head back."
 
 "...Eh?"
 
-Kei-kun let out a stunned reply. To ensure Mizuhi wouldn't say anything further on the matter, I gave her a knowing glance and began to walk back. Those two girls I could be sure would follow.
+Kei-kun lets out a stunned reply. To ensure Mizuhi wouldn't say anything further on the matter, I give her a knowing glance and begin to walk back. Those two girls I can be sure would follow.
 
 "Ah, well, might as well."
 
 "Miroku-chan!? Mizuhi-chan!?"
 
-With the sound of footsteps, a busy air expanded around me. Mizuhi had understood my intentions, and Toa-chan empathized and matched what I was doing.
+With the sound of footsteps, a turbulent mood expands around me to dispel the tension. Mizuhi had understood my intentions, and Toa-chan empathizes and matches both of us.
 
 "Um!"
 
-We heard a voice from behind, and paused our footsteps to wait for the words.
+We hear a voice from behind, and pause our footsteps to wait for the words.
 
 "Am I not a walking blob of suspiciousness right now?"
 
-They were pretty silly words.
+They are pretty silly words.
 
 "Well, you are. But... You rushed over here to protect us, didn't you?"
 
@@ -1995,21 +1995,21 @@ Yes. Just that is what this should be remembered as.
 Saving one's friends and colleagues.
 That is how this particular story should come to an end.
 
-I turned back to look at Kei.
+I turn back to look at Kei.
 He has very blue eyes.
-The kind of blue that reminded me of the endless depths of the ocean, as if his eyes were a direct reflection of his heart.
-If nobody were to reach out to him, then he would surely sink into that ocean itself.
-It was strange to think that, but that is a certainty I felt.
+The kind of blue that remind me of the endless depths of the ocean, as if his eyes are a direct reflection of his heart.
+If nobody were to reach out to him, then he will surely sink into that ocean itself.
+It's perhaps strange to think that, but that is a certainty I feel.
 Therefore,
 
 "...If you ever need help yourself, be sure to say something, to any of us. We can all help you out."
 
 "...Sure thing."
 
-I wonder what he was thinking as he replied. It's not something I have any way of knowing, though, as we'd only known each other for a week before that point.
+I wonder what he's thinking as he replies. It's not something I have any way of knowing, though, as we've only known each other for a week before now.
 
 Still, there is one thing. One thing that I *do* know.
-I had been massively mistaken.
+I have been massively mistaken.
 
 The expression he had shown for mere moments, that I could still nearly cry over, that appearance like an abandoned child?
 That was me.
@@ -2045,11 +2045,11 @@ We are cowards, who couldn't do anything.
 We are the scattered, who could not be rescued.
 We, despite all that, fight on, believing the day will come when we can save ourselves.
 
-I suddenly looked over at Kei. There was a fiery emotion in my chest that had never felt before.
+I suddenly look over at Kei. There is a fiery emotion in my chest that I have never felt before.
 
 "Come along, Kei, let's head back."
 
-It wasn't something as ridiculous as falling in love. This was a far baser and far more tragic connection—a twisted bond of loss between us two losers.
+It isn't something as ridiculous as falling in love. This is a far baser and far more tragic connection—a twisted bond of loss between us two losers.
 
 [^20]:  This is a play on words with Miroku's family name, Aohoshi, which uses 蒼 instead of 青.
 
@@ -2057,7 +2057,7 @@ It wasn't something as ridiculous as falling in love. This was a far baser and f
 
 
 
-## 11. You shouldn't assume someone is crucial to the plot just because she's a beautiful girl.
+# 11. You shouldn't assume someone is crucial to the plot just because she's a beautiful girl.
 Wow, everyone's being so nice suddenly.
 
 It must be because I gave it my all fighting against Rokuhara-san.
@@ -2318,7 +2318,7 @@ And so I left that place, the voice of a protagonist behind me, calling for me t
 
 "Hmph, you should just drop a guy like that! And that girl, Mizuhi or whatever, if she doesn't figure out she's being strung along, she'll suffer for it too, I tell you."
 
-Mihaya voices her displeasure with another *hmph*.
+Mihaya voiced her displeasure with another *hmph*.
 
 However, Touraku had been following a different train of thought.
 
@@ -2330,7 +2330,7 @@ However, Touraku had been following a different train of thought.
 
 "...What?"
 
-Kei's gaze is still fresh in Touraku's mind from when he had first run into Kei today. Kei had seemingly ignored him calling out, and instead focused on his body as if confirming something about him.
+Kei's gaze was still fresh in Touraku's mind from when he had first run into Kei today. Kei had seemingly ignored him calling out, and instead focused on his body as if confirming something about him.
 
 "He also knew Lutra's name."
 
@@ -2346,19 +2346,19 @@ And yet, Kei's response had been calm. Far from showing any surprise, he accepte
 
 "That livestream from before, the school where the DemonGear was discovered was that Fectom Comprehensive Academy. It couldn't be; did they know about that as well?"
 
-Touraku nods his head.
+Touraku nodded.
 
 "Kei-kun's attitude toward that person was incredibly polite. Or, rather, his attitude toward us was far too frank. It's like he was *trying* to be disliked, actively... Was there no need to beat around the bush like that at Mikage Academy? And in the first place the fact that he made contact with me is itself odd. Is it normal to pick on someone with no prior relationship just to bully them? No, the entire premise has to be rethought—"
 
-As he is on the verge of delving even deeper into his own thoughts, Touraku receives a light tap on his forehead.
+As he was on the verge of delving even deeper into his own thoughts, Touraku received a light tap on his forehead.
 
-Looking up, Mihaya stands there, in the same posture she had just flicked him from.
+Looking up, Mihaya stood there, in the same posture she had just flicked him from.
 
 "There's no point in thinking about that right now, really. No matter what that guy's got in his own head, we can do the things that we can do. And today, isn't that heading to Arianhrod?"
 
 "Ahh. Yeah. Right, thanks for reminding me."
 
-While expressing his thanks, Touraku begins heading for the sole elevator that connects to Arianhrod.
+While expressing his thanks, Touraku began heading for the sole elevator that connects to Arianhrod.
 
 *Kei-kun, just what sort of goal do you have?*
 
