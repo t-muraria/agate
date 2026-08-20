@@ -1050,7 +1050,7 @@ She's run dry on Murder Frogs.
 *It completely repairs itself within about 2 seconds after each Murder Frog goes off. My last one went out 5 seconds ago. I'm going to be cutting this really close...!*
 
 : isn't this really bad?
-: Get out of there, Rōka-chan!
+: Get out of there, Jōka-chan!
 : We should call the Enforcer. You can't afford to get grabbed by this thing
 : even if we want to call them in on her, she hasn't said which academy's dungeon she's at!
 
@@ -1103,8 +1103,9 @@ She also notices something else.
 : Fectom Comprehensive Academy?
 : the evidence got doxxed lmao
 : fectom? where even is that
-: Oh, I sorta remember hearing that school was strong, back in the day, maybe.
-: That's my mom's alma mater, lol
+: Oh, I sorta remember hearing that school was strong, back in the day, maybe.|
+
+ That's my mom's alma mater, lol
 
 Kuramu manages to keep a lid on her emotions despite having her location exposed, and continues the conversation.
 
@@ -1793,7 +1794,7 @@ I'm so glad we didn't end on any weird misunderstandings.
 
 
 
-# 10. The Pale-Blue Star and the Beautiful Girl[^20]
+## 10. The Pale-Blue Star and the Beautiful Girl[^20]
 
 One week.
 That is the length of time I, Aohoshi Miroku, had spent sharing a school with a boy named Narō Kei.
@@ -2057,7 +2058,7 @@ It isn't something as ridiculous as falling in love. This is a far baser and far
 
 
 
-# 11. You shouldn't assume someone is crucial to the plot just because she's a beautiful girl.
+## 11. You shouldn't assume someone is crucial to the plot just because she's a beautiful girl.
 Wow, everyone's being so nice suddenly.
 
 It must be because I gave it my all fighting against Rokuhara-san.
