@@ -828,7 +828,7 @@ The boss is gone, which means so is my reason to stick around! Bye-bye! The othe
 
 
 ## 6. If you're a beautiful girl, you're can intervene in anything, anywhere, in any way you like.
-Kisō Academy is one of the very first schools to be set up since Hinotsuchi came into being, and thanks to all of its various ties to and backing from external corporate entities, it has maintained a large amount of influence over the island.
+Kisō Academy was one of the very first schools to be set up since Hinotsuchi came into being, and thanks to all of its various ties to and backing from external corporate entities, it had maintained a large amount of influence over the island.
 
 Kirara Kuramu, one of its students, was not particularly fond of where Kisō was at as an institution. Crimes and vice were rampant, theft and plunder were considered normal, and it had a general culture of "might makes right". She couldn't stomach the twisted "meritocracy" that had wormed its way into the entire academy, and so it was rather inevitable she would decide to try and take some sort of action against it.
 
@@ -838,12 +838,12 @@ Many students had taken up streaming to record and show off the flow of dungeon 
 
 "Here to blast away the evil in your hearts! Iiiiits <ruby>Purge<rt>Jōka</rt></ruby>-chan!"[^10]
 
-Kuramu takes up a pose in front of her camera. The autonomous drone, fitted for dungeon streaming and designed to stay out of the way in any combat scenarios, blankly captures her energy.
+Kuramu took up a pose in front of her camera. The autonomous drone, fitted for dungeon streaming and designed to stay out of the way in any combat scenarios, blankly captured her energy.
 
-She is once again doing her exclusive exposé streaming, targeting Kisō Academy. And in a matter of moments, comments are scrolling across a small translucent panel projected from her DiveGear.
+She was once again doing her exclusive exposé streaming, targeting Kisō Academy. And in a matter of moments, comments began scrolling across a small translucent panel projected from her DiveGear.
 
-: you kept us waiting
-: There she is, The Fugitive
+: you kept us waiting\
+: There she is, The Fugitive\
 : Kon-Jōka![^11]
 
 "Oh, you're all just raring to go today aren't you? Well, like I said the other day in a post, today we're going to be uncovering Kisō Academy's dark secrets~! Yay! Oh President of the Student Council, ya watching? ...One of these days, I'll pull you right out of that chair."
@@ -865,47 +865,47 @@ The overall vibe of the comments was that Kuramu had some good reasons to be wor
 
 "Right? So, that's all to say I'm currently doing a bit of tresspassing on another academy's grounds. Ah, I won't tell you even if you ask, okay? They'd just start sending *their* committee after me."
 
-: oh my god she actually broke in
-: Yes, Disciplinary Committe? Get this girl.
-: go go go go go!
+: oh my god she actually broke in\
+: Yes, Disciplinary Committe? Get this girl.\
+: go go go go go!\
 : wonder if she'll come to my place next...
 
-All of the chat members are as boisterous as usual. Kuramu waits for her view count to cross 10,000 before she actually starts moving, and makes her way through a dense forest. She's able to follow the directions she'd been given without getting lost in the trees, and eventually arrives in front of some sort of facility.
+All of the chat members were as boisterous as usual. Kuramu waited for her view count to cross 10,000 before she actually started moving, and then made her way through a dense forest. She was able to follow the directions she'd been given without getting lost in the trees, and eventually arrived in front of some sort of facility.
 
-Incidentally, that facility's location is at the northernmost tip of Fectom Comprehensive Academy's starter dungeon, and structure is what used to manage the dungeon itself.
+Incidentally, that facility's location was at the northernmost tip of Fectom Comprehensive Academy's starter dungeon, and the structure was what used to manage the dungeon itself.
 
 "Up until about 10 years back, this was the management facility for this dungeon. Buuut it got destroyed in an accident. It's a pretty bog-standard way to cover up evidence, isn't it?"
 
-While narrating her presumed version of history, Kuramu circles the perimeter, eventually spotting something in an area on the ground.
+While narrating her presumed version of history, Kuramu circled the perimeter, eventually spotting something in an area on the ground.
 
 "Sweet! Blast it, <ruby>Murder Frog<rt>Man-Eating Frog</rt></ruby>!"
 
-Yes. The DiveGear equipment Kuramu wields is a frog-shaped machine she created. This one hops to her marker, and immediately detonates itself upon reaching it.
+Yes. The DiveGear equipment Kuramu wielded was a frog-shaped machine she created. This one hopped to her marker, immediately detonating itself upon reaching it.
 
 "Whew! Great work as always, Mā-chan."
 
-: Weapon of Mass Destruction
+: Weapon of Mass Destruction\
 : yyep. she's a Kisō student alright.
 
-She thrusts her finger out as soon as the dust clears, pointing at a large staircase within the hole that explosion had just torn open in the ground.
+She thrust her finger out as soon as the dust cleared, pointing at a large staircase within the hole that explosion had just torn open in the ground.
 
 "Look! An entrance to a hidden research facility, right here! With this, I think today's stream is guaranteed to be a big one! Oh, but Kisō is almost definitely going to get the VOD taken down, so remember to save it yourselves to share later, mkay~?"
 
-: hop to it everyone!
-: which academy's dungeon is this tho, actually
-: every time you say that and every time you can't bring anything back
+: hop to it everyone!\
+: which academy's dungeon is this tho, actually\
+: every time you say that and every time you can't bring anything back\
 : It's gotta be pitch-black in there, be carefulll
 
-Kuramu lets the comments flow by while she starts descending the stairs. The inner walls of this place are covered in dust and grime, which gave more credit to the idea that this had been abandoned together with the management facility a decade back. Even so, there must be some electricity supplied here, keeping the emergency lights along the corridors as a sole remaining source of light.
+Kuramu let the comments flow by while she started descending the stairs. The inner walls of this place were covered in dust and grime, which gave more credit to the idea that this had been abandoned together with the management facility a decade back. Even so, there must have still been some electricity supplied here, keeping the emergency lights along the corridors as a sole remaining source of light.
 
-She continues deeper in, with just the emergency lights and that of her DiveGear to illuminate her path.
+She continued deeper in, with just the emergency lights and that of her DiveGear to illuminate her path.
 
 "A rather strange number of cages here, no? ...As I suspected, this is where they were performing those experiments."
 
-: "those experiments"?
+: "those experiments"?\
 : share the experiment details with us tooo
 
-Kuramu rummages around in one of the cages while she answers the comments she sees come in.
+Kuramu rummaged around in one of the cages while she answered the comments she saw come in.
 
 "A company somewhere abroad came up with a plan to develop DiveGear more advanced than the ones divers currently use. The story goes that Kisō Academy provided a lot of funding, personnel, and even facilities for that project."
 
@@ -913,14 +913,14 @@ Kuramu had heard two things further: The plan had already fallen through, and se
 
 "The Gear, which the project named DemonGear, used at least one girl with the necessary aptitude as a base. By treating the the soul itself as code, the user of such a Gear can reach a much higher level of performance than conventional DiveGear."
 
-: I've heard about this a bit in urban legends
-: no way that could actually exist
-: terrifying
+: I've heard about this a bit in urban legends\
+: no way that could actually exist\
+: terrifying\
 : How can you even set your sights on something that dangerous?
 
-Her chat splits into three types of responses, but Kuramu just silently continues her exploration as she watches them scroll by. Several of her frogs hop around her like a security detail.
+Her chat split into three types of responses, but Kuramu just silently continued her exploration as she watched them scroll by. Several of her frogs hopped around her like a security detail.
 
-About half an hour has passed since Kuramu entered the research facility. With nothing else in particular to catch her eye, she had ended up accidentally exploring all the way in.
+About half an hour had passed since Kuramu entered the research facility. With nothing else in particular to catch her eye, she had ended up accidentally exploring all the way in.
 
 "You'd think they'd at least have left a few research notes or material lying around... This is a bit disappointing."
 
@@ -928,97 +928,97 @@ About half an hour has passed since Kuramu entered the research facility. With n
 
 "Well, it's good evidence for the project itself, but there's nothing here that I can trace back to Kisō Academy."
 
-Kuramu's goal is complete eradication of Kisō Academy's corruption. She doesn't seem to care all that much about anything not directly related to that.
+Kuramu's goal was complete eradication of Kisō Academy's corruption. She didn't seem to care all that much about anything not directly related to that.
 
 "Okay, this is the final room left to break into. The door looks prety bulky... Mā-chans, you're up!"
 
-: her Calling Card!
-: A woman who knows nothing but the path of explosions.
+: her Calling Card!\
+: A woman who knows nothing but the path of explosions.\
 : this is why you set off every alarm that exists
 
 "Oh, would you all quit it with that? This place is years out of commission. If any alarms *do* go off, I can just ignore them!"
 
-Kuramu sends the frogs flying at the door together with her declaration. Once several of them pile on, they explode with a loud bang. She gives the scattering dust cloud and new hole in the door an approving nod.
+Kuramu sent the frogs flying at the door together with her declaration. Once several of them piled on, they exploded with a loud bang. She gave the scattering dust cloud and new hole in the door an approving nod.
 
 "I *knew* that would do it."
 
-: it's the only way to do it you know
+: it's the only way to do it you know\
 : she's cute when she's smug
 
-Without even letting the smoke clear, Kuramu then throws herself through the opening and into the next room. Unlike the rest of the facility, this one has a proper supply of power to it. It's still quite dark, but there's at least a low level of light coming from the various monitors and the massive supercomputer embedded in the wall.
+Without even letting the smoke clear, Kuramu then threw herself through the opening and into the next room. Unlike the rest of the facility, this one had a proper supply of power to it. It was still quite dark, but there was at least a low level of light coming from the various monitors and the massive supercomputer embedded in the wall.
 
 "...Well, *this* does look promising."
 
-The object that draws her gaze is the giant cylinder of glass in the center of the room. Inside it is an orange liquid, and within that liquid is a *girl*, floating in a fetal position.
+The object that drew her gaze was the giant cylinder of glass in the center of the room. Inside it was an orange liquid, and within that liquid was a *girl*, floating in a fetal position.
 
-She had no logical reason to assume anything more, but her intuition strongly says *That is a living being.*
+She had no logical reason to assume anything more, but her intuition strongly told her *That is a living being.*
 
 "The appearance of a young girl... No way, could this be the DemonGear?"
 
-: in the flesh!?
-: this stream is peak!
-: Purge-chan, well done!
+: in the flesh!?\
+: this stream is peak!\
+: Purge-chan, well done!\
 : Let's find that evidence that this is Kisō Academy's work!
 
 "R-right. Let's look around for some evidence. ...To be honest, I never expected the actual product to be here still... What should we do? I didn't plan anything around this—ah!?"
 
-An explosion sounds from behind her, and she immediately recognizes that her security detail of Gear had self-destructed to protect her from...something.
+An explosion sounded from behind her, and she immediately recognized that her security detail of Gear had self-destructed to protect her from...something.
 
 "Mā-chan took independent action!? That only happens when someone's expressing hostility toward me, so someone must be outside."
 
-Through the door she had just "entered" the room by, just large enough for one human, Kuramu can make out a mass of skin-colored flesh. A section of it has been charred, but that doesn't seem to do anything to the whole.
+Through the door she had just "entered" the room by, just large enough for one human, Kuramu could make out a mass of skin-colored flesh. A section of it has been charred, but that hadn't seemed to do anything to the whole.
 
 "They trapped me in here...? What, death to anyone who dares enter here, or something?"
 
-Her only exit is sealed. She thinks over the situation for just a moment before finding her answer.
+Her only exit was sealed. She thought over the situation for just a moment before finding her answer.
 
 "Cool. Let's just blow everything up and run away."
 
-: the Escape Sequence has started
-: so the usual
-: again?!
-: she's a walking liability
+: the Escape Sequence has started\
+: so the usual\
+: again?!\
+: she's a walking liability\
 : Girls like blowing things up too?
 
 "Hey, even I wouldn't blow up *this* room, okay? I went through all this trouble and finally found a DemonGear—with this in my hands, I can drag in other schools under the pretext of recovering it from Kisō Academy! This is an absolutely priceless opportunity."
 
-After saying that, Kuramu starts sending countless frogs through the hole in the door. Each of them pass through, then jump out and grab hold of the flesh-colored shape on the other side and detonate. But, even with all of that output, whatever it is doesn't seem to be worse for wear.
+After saying that, Kuramu started sending countless frogs through the hole in the door. Each of them passed through, then jumped out and grabbed hold of the flesh-colored shape on the other side and detonated. But, even with all of that output, whatever it is didn't seem to be worse for wear.
 
 "The blast force on these can turn a 50-centimeter plate of steel to shrapnel... I guess with that in mind."
 
 Kuramu instead attaches frogs to the door, and with their explosions, it's reduced to mere fragments, leaving the hole in the center large enough for the flesh-colored thing outside to finally enter. And enter it does, slowly.
 
-: Gross!
-: the hell is THAT!?
-: absolutely not a human
+: Gross!\
+: the hell is THAT!?\
+: absolutely not a human\
 : Dungeon Boss? though, I can't say I've seen any like this one...
 
-The chat, much like the door, suddenly explodes with activity seeing the humanoid monster. It has no face, and looks rather like someone fashioned it out of flesh-colored clay. But it obviously had a will of its own, and that had it walking in here at Kuramu.
+The chat, much like the door, suddenly exploded with activity seeing the humanoid monster. It had no face, and looked rather like someone fashioned it out of flesh-colored clay. But it obviously had a will of its own, and that had it walking in here at Kuramu.
 
 "What even is this thing? —Behind m–!?"
 
-The monster suddenly disappears, and Kuramu immediately flings herself forward on pure instinct informed by all her previous experiences. The space where she just was echoes with the sound of a high-speed impact. 
+The monster suddenly disappeared, and Kuramu immediately flung herself forward on pure instinct informed by all her previous experiences. The space where she just was echoed with the sound of a high-speed impact. 
 
 "Guh, so you're the type of boss that plays dumb and catches people off guard with high-speed combat? I don't hate a good bluff, but I can't afford to go down just yet. Mā-chans!"
 
-An even greater swarm of frogs emerges from her DiveGear, which she throws as they appear and uses to explode her way to the other side of the door.
+An even greater swarm of frogs emerged from her DiveGear, which she threw as they appeared and used to explode her way to the other side of the door.
 
 "Yeesh! That was really really really close just now!"
 
-: doesn't this also destroy the rest of the room?
-: she blew it all up
+: doesn't this also destroy the rest of the room?\
+: she blew it all up\
 : Nooo the girl!
 
 "Oh, don't worry about that. My Murder Frogs can act as directed explosive charges, so only that monster is getting roasted."
 
-: She says the most terrifying things...
+: She says the most terrifying things...\
 : did you kill it?
 
-Kuramu shakes her head.
+Kuramu shook her head.
 
 "No. It shrugged off the first few explosions so easily, I can't imagine any amount of them will be enough to kill it. So instead of taking it down, let's get... Oh it's already back up!"
 
-The monster re-emerges from the smoke. Kuramu may be taken off guard again, but she begins running off together with her frogs.
+The monster re-emerged from the smoke. Kuramu may have been taken off guard again, but she began running off together with her frogs.
 
 "I'll keep slowing it down with these explosions, and we'll gun it right for the exit!"
 
@@ -1026,18 +1026,18 @@ The monster re-emerges from the smoke. Kuramu may be taken off guard again, but 
 
 "*Obviously* the Enforcer, it isn't even close!!"
 
-: okay you're still pretty chill about this lol
+: okay you're still pretty chill about this lol\
 : yay, looks like another clean getaway this time
 
-Her chat continues joking about the situation, in stark contrast to how desperate she feels. She throws a few mental curses at them, but continues running.
+Her chat continued joking about the situation, in stark contrast to how desperate she felt. She threw a few mental curses at them, but continues running.
 
 *It's going to outpace me...! The Murder Frogs have definitely blown off its limbs more than a few times, but...*
 
-She steals another glance behind her. The monster's left leg, which should have just been exploded off it, had already regenerated itself from the stump. Which begs the question:
+She stole another glance behind her. The monster's left leg, which should have just been exploded off it, had already regenerated itself from the stump. Which begged the question:
 
 *This level of regeneration is far too strong for something meant to defend a facility. Is it* really *something made to capture intruders?*
 
-Noticing one inconsistency immediately starts prompting other second-guessing on the night's events, but Kuramu shakes her head to try and avoid thinking them for now.
+Noticing one inconsistency immediately started prompting other second-guessing on the night's events, but Kuramu shook her head again to try and avoid thinking them for now.
 
 "For now I just gotta get out of here!"
 
@@ -1045,44 +1045,44 @@ The chase sequence between her and the monster had already lasted for 20 minutes
 
 "Haa. Haa. Just a bit more—"
 
-She's run dry on Murder Frogs.
+She'd run dry on Murder Frogs.
 
 *It completely repairs itself within about 2 seconds after each Murder Frog goes off. My last one went out 5 seconds ago. I'm going to be cutting this really close...!*
 
-: isn't this really bad?
-: Get out of there, Jōka-chan!
-: We should call the Enforcer. You can't afford to get grabbed by this thing
+: isn't this really bad?\
+: Get out of there, Jōka-chan!\
+: We should call the Enforcer. You can't afford to get grabbed by this thing\
 : even if we want to call them in on her, she hasn't said which academy's dungeon she's at!
 
-By now, even the chat had realized how much danger Kuramu is in, and they try to prompt her to reveal which school she's at, but she refuses to say.
+By now, even the chat had realized how much danger Kuramu is in, and they tried to prompt her to reveal which school she's at, but she refused to say.
 
 "This time more than any other I can't afford to. If the scum within Kisō Academy learn where I am, then this has all been for nothing!"
 
-She is determined to bring down Kisō Academy, so she doesn't even think twice about staking her life on this scoop.
+She was determined to bring down Kisō Academy, so she didn't even think twice about staking her life on this scoop.
 
 "Just one more room left!"
 
-Right as her feet land in the last room before her way back out, the ceiling suddenly collapses.
+Right as her feet landed in the last room before her way back out, the ceiling suddenly collapsed.
 
 "!?!? And what is it *this* time!?"
 
-Behind her is a monster, therefore the obvious assumption is there's another that managed to cut her off. But what her eyes see next is far removed from the thing that's been chasing her.
+Behind her was a monster, therefore the obvious assumption was there's another that managed to cut her off. But what her eyes saw next was far removed from the thing that'd been chasing her.
 
 "That's—"
 
-Moonlight scatters from the debris and its source, granting this room a dim light. In the middle of it all is a *girl*, in an outfit you might expect to find at a soirée. Her hair, a bluish silver, shimmers in the fractured moonlight and the gust from her fall. Her eyes betray melancholy, deep as the ocean.
+Moonlight scattered from the debris and its source, granting this room a dim light. In the middle of it all was a *girl*, in an outfit you might expect to find at a soirée. Her hair, a bluish silver, shimmering in the fractured moonlight and the gust from her fall. Her eyes betrayed melancholy, deep as the ocean.
 
-Within another moment, she alights in the room with a cat's grace. Her beauty is so striking, so entrancing, almost as if the entire world's favor belongs to her.
+Within another moment, she alighted in the room with a cat's grace. Her beauty was so striking, so entrancing, almost as if the entire world's favor belongs to her.
 
 "—miss, excuse me, who are you?"
 
-The question slipped out without Kuramu realizing, and the mysterious girl turns around, seemingly unaware of her presence until just now. A queer tension comes over Kuramu, the monster chasing her currently completely forgotten.
+The question slipped out without Kuramu realizing, and the mysterious girl turned around, seemingly unaware of her presence until just now. A queer tension came over Kuramu, the monster chasing her completely forgotten.
 
 "She just, randomly fell from the ceiling...? Miss, sorry, could I get your name?"
 
 "Miss...?"
 
-The gaze returning to Kuramu holds a returned question, *Are you talking about me?* The girl seems listless and indifferent to her, just letting out a sigh of boredom.
+The gaze returning to Kuramu held a returned question, *Are you talking about me?* The girl seemed listless and indifferent to her, just letting out a sigh of boredom.
 
 
 [^10]: Slightly different from Sorcière's case here, I'm including the reading over her name for clarity, since there are times when it's going to be rendered as both. Most names remain as written in the original, but her streamer name is one that I have a good translation for compared to the complexity of most of the other names in the series.
@@ -1094,34 +1094,33 @@ The gaze returning to Kuramu holds a returned question, *Are you talking about m
 ## 7. The face of a beautiful girl means the rhetoric of a beautiful girl, among other things.
 "I also don't ever recall meeting *you*, young lady. Unless I'm horribly mistaken, this is the starter dungeon at Fectom Comprehensive Academy, no?"
 
-The girl finally answers, in a rather muffled voice. Kuramu had been so caught up in the girl's beauty, but finally notices on a closer look that she had a rather rugged mask over her mouth. It resembles a gas mask, and the lights coming off of it would indicate that whatever its function is, it is still in use.
+The girl finally answered, in a rather muffled voice. Kuramu had been so caught up in the girl's beauty, but finally noticed on a closer look that she had a rather rugged mask over her mouth. It resembled a gas mask, and the lights coming off of it would indicate that whatever its function is, it is still in use.
 
-She also notices something else.
+She also noticed something else.
 
 "Ah. The academy's name..."
 
-: Fectom Comprehensive Academy?
-: the evidence got doxxed lmao
-: fectom? where even is that
-: Oh, I sorta remember hearing that school was strong, back in the day, maybe.|
+: Fectom Comprehensive Academy?\
+: the evidence got doxxed lmao\
+: fectom? where even is that\
+: Oh, I sorta remember hearing that school was strong, back in the day, maybe.\
+: That's my mom's alma mater, lol
 
- That's my mom's alma mater, lol
-
-Kuramu manages to keep a lid on her emotions despite having her location exposed, and continues the conversation.
+Kuramu managed to keep a lid on her emotions despite having her location exposed, and continued the conversation.
 
 "I, I'm here to dive, or more like stream? a dungeon that was only rumored to exist..."
 
 "Stream?"
 
-The girl frowns, clearly displeased by her response. Kuramu, operating mostly on her instincts warning her, quickly closes her projected chat window and moves her camera drone out of the girl's line of sight. She speaks up to keep the girl's attention on her.
+The girl frowned, clearly displeased by her response. Kuramu, operating mostly on her instincts warning her, quickly closed her projected chat window and moved her camera drone out of the girl's line of sight. She spoke up to keep the girl's attention on her.
 
 "M-more importantly!"
 
-She approaches while thinking of anything she can say to possibly get the girl to forget about her admission to streaming, and is met with an impossibly cold stare.
+She approached while thinking of anything she could say to possibly get the girl to forget about her admission to streaming, and was met with an impossibly cold stare.
 
 "Something's after me! I think it's, probably, a defense mechanism set up for this area, but..."
 
-Right as she's about to explain in more detail, the sound of the door flying off its hinges echoes behind her. It would seem the monster has finally caught up to her.
+Right as she was about to explain in more detail, the sound of the door flying off its hinges echoed behind her. It would seem the monster had finally caught up to her.
 
 "Ahhh!"
 
@@ -1133,59 +1132,59 @@ Even with that sudden re-appearance and Kuramu's own screaming, the girl's expre
 
 She couldn't have come off as less interested if she had been trying. 
 
-Staring down the monster of an opponent that had tanked and shrugged off every single attack Kuramu had been able to throw at it, the girl sticks out her pointer finger and asks in the cadence of someone talking about garbage:
+Staring down the monster of an opponent that had tanked and shrugged off every single attack Kuramu had been able to throw at it, the girl stuck out her pointer finger and asked in the cadence of someone talking about garbage:
 
 "You don't mind if I take that thing out entirely, do you?"
 
 "You, you mean you can kill it!? I haven't even been able to put a dent in the thing..."
 
-The girl doesn't nod, nor shake her head, but steps in front of Kuramu and holds out her left hand as if in a gesture of protection. As she does so, Kuramu can't help but notice what the girl has on her arm.
+The girl didn't nod, nor shake her head, but stepped in front of Kuramu and holds out her left hand as if in a gesture of protection. As she did so, Kuramu couldn't help but notice what the girl has on her arm.
 
 *A crimson DiveGear? I've never seen one like it before.*
 
-The bracelet sparkles like blood over rust, an interplay of vibrant and dull reds that dazzle the eye, and has a slight glow to it besides.
+The bracelet sparkled like blood over rust, an interplay of vibrant and dull reds that dazzle the eye, with a slight glow to it besides.
 
 "Something like this isn't any trouble at all, though."
 
-A massive scythe emerges from the bracelet to complement the girl's statement.
+A massive scythe emerged from the bracelet to complement the girl's statement.
 
 "A black, scythe?"'
 
-Pitch-black, and larger than either girl here. The material seems organic in some way, with that red light seeping through cracks in its surface. Its appearance perhaps strikes as much fear into the monster as it does fascination into Kuramu, and the monster suddenly lurches into a charge forward. Kuramu simply screams, given no time to process anything at all.
+Pitch-black, and larger than either girl here. The material seemd organic in some way, with that red light seeping through cracks in its surface. Its appearance perhaps struck as much fear into the monster as it does fascination into Kuramu, and the monster suddenly lurched into a charge forward. Kuramu simply screamed, given no time to process anything at all.
 
 "Ahhh! It's coming!"
 
 "Nothing to worry about."
 
-Precise movements following a curt reply. The monster swings with greater speed and ferocity than it ever had at Kuramu, but the girl steps around each of them as if she's dancing, or drawing on a well-rehearsed piece of choreography.
+Precise movements following a curt reply. The monster swung with greater speed and ferocity than it ever had at Kuramu, but the girl stepped around each of them as if she's dancing, or drawing on a well-rehearsed piece of choreography.
 
 "What is this, a Saturday show villain?"
 
-She dismisses its very existence as a foe, and swings her scythe up with one hand to tear apart an arm as it approaches her. Dodging the blood spray as a mere annoyance, she then brings the scythe around to cleave both legs off the creature. With its source of balance removed, both it and the limbs drop to the floor with a dull noise.
+She dismissed its very existence as a foe, and swung her scythe up with one hand to tear apart an arm as it approached her. Dodging the blood spray as a mere annoyance, she then brought the scythe around to cleave both legs off the creature. With its source of balance removed, both it and the limbs dropped to the floor with a dull noise.
 
-The girl steps back, observing the creature's next actions as she shakes blood off of her weapon. Kuramu quickly chimes in:
+The girl stepped back, observing the creature's next actions as she shook blood off of her weapon. Kuramu quickly chimed in:
 
 "It has an unbelievable ability to reform! It doesn't matter how much you take out, it keeps repairing itself!"
 
 "Cute."
 
-She probably already knew that (and was just humoring Kuramu for the information), because she shows no hint of surprise, and simply thrusts the tip of her scythe deep into the floor. She points the end of the handle, now a muzzle or barrel of some kind and stylized or engraved like entwined snakes, at the monster, and grabs hold of a grip emerging from the midpoint, placing a finger on the trigger.
+She probably already knew that (and was just humoring Kuramu for the information), because she showed no hint of surprise, and simply thrust the tip of her scythe deep into the floor. She pointed the end of the handle, now a muzzle or barrel of some kind and stylized or engraved like entwined snakes, at the monster, and grabbed hold of a grip emerging from the midpoint, placing a finger on the trigger.
 
 "<ruby>Sorcière<rt>Star-Reader Staff</rt></ruby>."
 
-That scythe is undoubtedly "alive". Nothing artificial could possibly be channeling such an absurd amount of mana, concentrating it densely at the barrel the way this was.
+That scythe was undoubtedly "alive". Nothing artificial could possibly be channeling such an absurd amount of mana, concentrating it densely at the barrel the way this was.
 
 *A Convergence Bombardment!?[^12] And in such an impossibly short time, too; just a few seconds, without even a visible Convergence Formula.*
 
-Common knowledge was that Convergence Bombardments are all lengthy processes to accumulate and discharge, but this girl was operating on a level completely beyond anyone else Kuramu had ever seen. She's trembling, not from her exhaustion or even the tension of the night's events, but from an overwhelming fear of the girl responsible for what's happening in front of her.
+Common knowledge was that Convergence Bombardments are all lengthy processes to accumulate and discharge, but this girl was operating on a level completely beyond anyone else Kuramu had ever seen. She was trembling, not from her exhaustion or even the tension of the night's events, but from an overwhelming fear of the girl responsible for what was happening in front of her.
 
 "Have you ever been a witness to starlight?"
 
-The question and devastation blossom forth together, a beautiful delivery of a final despair.
+The question and devastation blossomed forth together, a beautiful delivery of a final despair.
 
 "Whuh."
 
-Kuramu lets out a small vocalization as the energy of that magic ripples backward. The world is dominated by silver light, and the expressionless girl pumps more into it as its heart.
+Kuramu let out a small vocalization as the energy of that magic ripples backward. The world was dominated by silver light, and the expressionless girl pumped more into it as its heart.
 
 3 seconds. No more, no less, and yet Kuramu couldn't help but feel she had been graced with that view for so much longer.
 
@@ -1193,17 +1192,17 @@ Kuramu lets out a small vocalization as the energy of that magic ripples backwar
 
 "Hooh."  
 
-The girl in front of her lets out a sigh. Kuramu's head is full of questions, and while she speaks up again, it's prompted by the thought that if she doesn't right now, the girl will vanish completely.
+The girl in front of her let out a sigh. Kuramu's head is full of questions, and while she spoke up again, that action was prompted by the thought that if she didn't right now, the girl would vanish completely.
 
 "Wo, woah... What *was* that?"
 
-Her streaming camera is, even with all that just happened, still running, and her brain defaults to information-gathering.
+Her streaming camera was, even with all that just happened, still running, and her brain defaulted to information-gathering.
 
 "I heard 'Sorcière', is that the name of your weapon? Or, like, which academy are you from!? Wait first can I get your diver rank—"
 
 "What makes you think I have any obligation to answer those questions?"
 
-An immediate shutdown from the girl, plus her frigid stare. She sends the scythe off into the air, where it vanishes, and begins walking past the walls she just removed.
+An immediate shutdown from the girl, plus her frigid stare. She sent the scythe off into the air, where it vanished, and began walking past the walls she just removed.
 
 "I'll be taking my leave here. Young lady, I suggest you also hurry along back home. Nothing remains here, for anyone."
 
@@ -1211,24 +1210,24 @@ Kuramu understood that she was talking about the DemonGear. And while she wanted
 
 "Ah. My legs. Won't stop shaking."
 
-She collapses to the floor as her body is finally allowed to react to everything that had just occurred. In an effort to regain some composure, she flicks back open the chat panel with one of her trembling hands, and as you'd expect, they're all abuzz wondering about that girl.
+She collapsed to the floor as her body is finally allowed to react to everything that had just occurred. In an effort to regain some composure, she flicked back open the chat panel with one of her trembling hands, and as you'd expect, they were all abuzz wondering about that girl.
 
-: What just happened!?
-: damn, i wonder what rank she is
-: S, I'd bet. She'd make it 8 people total in that rank, right?
-: never heard of a Sorcière, tho
-: Purge-chan's as strong as you can get in B rank without moving up to A, and this girl completely demolished a monster that was giving her trouble. So S rank makes sense to me.
-: chat, if she was really an S rank, the Apis Umbrella[^13] would have made an announcement about her. she prob just had an insanely good matchup here
-: how is she not already famous, even if she's at an otherwise super weak school?
+: What just happened!?\
+: damn, i wonder what rank she is\
+: S, I'd bet. She'd make it 8 people total in that rank, right?\
+: never heard of a Sorcière, tho\
+: Purge-chan's as strong as you can get in B rank without moving up to A, and this girl completely demolished a monster that was giving her trouble. So S rank makes sense to me.\
+: chat, if she was really an S rank, the Apis Umbrella[^13] would have made an announcement about her. she prob just had an insanely good matchup here\
+: how is she not already famous, even if she's at an otherwise super weak school?\
 : She's really pretty... Imagine if she started streaming.
 
 "That was amazing, wasn't it chat? It's a miracle we had the camera rolling to capture that. That student isn't someone I'm familiar with, so if anyone watching has any information on her, my DMs are always open~"
 
-The streamer personality switches back on properly.
+The streamer personality switcheed back on properly.
 
 "The only other question is, *what now*?"
 
-Kirara Kuramu is a singular girl working to undermine the entirety of Kisō Academy, so there's no way one other singular girl can scare her off just like that. She's still thinking about following after the enigmatic beauty when her eye catches a particularly topical comment out of the flood of discussion about the stranger.
+Kirara Kuramu was a singular girl working to undermine the entirety of Kisō Academy, so there's no way one other singular girl could scare her off just like that. She was still thinking about following after the enigmatic beauty when her eye caught a particularly topical comment out of the flood of discussion about the stranger.
 
 : With your location doxxed, I'd suggest more running away.
 
@@ -1238,11 +1237,11 @@ Kuramu swiftly changes gears back to "panicked escape".
 
 "Um, I think I'll end stream here for tonight! I think there's still enough evidence around to work with, so let's count this as one more step toward bringing Kisō Academy down! I need to run like hell before security can find out where exactly I am, so byebye everyone~!"
 
-Currently, she's completely spent on energy and weapons, so there's no way she can keep the stream up. She quickly shuts off the stream before the chat can all type out their reactions, and kicks off running to the stairs.
+Currently, she was completely spent on energy and weapons, so there's no way she could keep the stream up. She quickly shut off the stream before the chat could all type out their reactions, and kicked off running to the stairs.
 
 "I should try doing a proper street interview for that girl, next time we run into each other."
 
-She looks very happy, thinking about what her next stream would be.
+She looked very happy, thinking about what her next stream would be.
 
 [^12]: I did a bit of digging around to see if there were any other translations (look, I just have an inherent distrust of flavor translation taken from an MTL), and this one is actually quite nice. "収束" is a mathematical term, which slots very nicely into the programmatic or algorithmic nature of how mana is usually used in this setting. "プログラム" similarly becomes Formula, since rather than a broad algorithm this is a specified use case for one person and one output.
 
