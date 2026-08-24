@@ -2739,7 +2739,7 @@ A response as if she really is talking to a student of hers.
 
 "Well, shall we get back to killing each other, then?"
 
-"...Be careful, Kei. I know you already know this, but our professor[^27] was strong. I, Miroku, and Toa together couldn't win against her, couldn't even touch her—she's the strongest diver there is."
+"...Be careful, Kei. I know you already know this, but our instructor[^27] was strong. I, Miroku, and Toa together couldn't win against her, couldn't even touch her—she's the strongest diver there is."
 
 "Right....eh?"
 
@@ -4671,7 +4671,7 @@ The crimson bracelet manifests, raising my acuity, and with that elevation in pe
 
 ...Oh.
 
-"Just like I thought, *those* eyes. Just like Sorcière's. It's not dodging based on experience, but observation through eyesight and then reactive moetion. You've got a marvelous pair of eyes on you, and it's no use trying to hide from me any longer."
+"Just like I thought, *those* eyes. Just like Sorcière's. It's not dodging based on experience, but observation through eyesight and then reactive motion. You've got a marvelous pair of eyes on you, and it's no use trying to hide from me any longer."
 
 "I..."
 
@@ -5022,7 +5022,7 @@ Please, be a small fry. *Please*, be a pushover—
 
 The girl in front of her let out a sigh of exasperation. The true face behind the mask, behind the boy "Narō Kei", who had been acting right and proper just moments prior.
 
-There stands this city's one abnormality. The one placed within S rank as an exception—Sorcière.
+There stood this city's one abnormality. The one placed within S rank as an exception—Sorcière.
 
 "You've used the assumption well that Narō Kei is male, but that hasn't gotten past me. Did you even have your school records changed?"
 
@@ -5818,7 +5818,7 @@ A tray is placed before me. It holds a slice of bread, and a stir-fry of bean sp
 
 I add even more thanks to my thanks for Miroku-senpai, as she speaks with an upbeat tone. From what I've heard, she does a lot of part-time work in the mornings. The city has a ton of schools, which contributes to a lower threshold for when one starts picking up work, and there's quite a number of students who have jobs here. Very few manage to get by on *just* their payouts from diving.
 
-Just hold on tight, once I become a beautiful girl, I'll clean up a ton of dungeons one-sidedly (ones unrelated to the main plot). And with that fortune amassed, I can make for us us a Yuri Academy.[^42] I'm quite serious. Quite serious indeed.
+Just hold on tight, once I become a beautiful girl, I'll clean up a ton of dungeons one-sidedly (ones unrelated to the main plot). And with that fortune amassed, I can make for us a Yuri Academy.[^42] I'm quite serious. Quite serious indeed.
 
 "Oh, Kei, are you unable to eat like that?"
 
