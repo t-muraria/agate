@@ -24,10 +24,10 @@ Ah, another thing that is not fabrication is the core conceits of Anselm, though
 There's a post I've never forgotten. Not just because I've saved it, but because it *understands*.
 
 > [!quote] [bungerc0re, tumblr. October 2025.](https://www.tumblr.com/bungerc0re/798304181054210048)
-> the pursuit of omniscience is not noble it is not even achievable. but it has to be done. you'll rend yourself apart if you die knowing one less thing than you could have.
-> 🔄
-> people keep acting shocked or impressed when i tell them that's what drives me. does not the denial of information eat at you? does it not gnaw at your soul every moment that there are things you could know if you worked for them and you don't?
-> 🔄
+> the pursuit of omniscience is not noble it is not even achievable. but it has to be done. you'll rend yourself apart if you die knowing one less thing than you could have. \
+> 🔄 \
+> people keep acting shocked or impressed when i tell them that's what drives me. does not the denial of information eat at you? does it not gnaw at your soul every moment that there are things you could know if you worked for them and you don't? \
+> 🔄 \
 > a side conversation at a market in a language you don't understand is forever lost to you. that's not just a part of the world you lost that's a part of /your/ world that you will never get back. it'll fade into the memory of those who said it and leave yours even faster. is that not an unbearable agony?
 
 The name of science, this story, of course, comes from the word "omniscience". That root of knowledge, truncated and incomplete, knowing it *can't* be everything, wanting to be everything all the more.
