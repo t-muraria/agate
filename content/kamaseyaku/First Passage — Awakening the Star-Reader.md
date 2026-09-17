@@ -1,13 +1,12 @@
-# First Passage — Awakening the Star-Reader
 ## Disclaimer
-This story is officially published on Kakuyomu, at https://kakuyomu.jp/works/16817330668626245437, as かませ役♂に憑依転生した俺はＴＳを諦めない. This fan translation was done by [🌙](https://rinion.studio) and has no affiliation with the author, or other existing translations of this work. This is a purely personal project, with no paywall. If the author or other related parties request it to be taken down from hosting, I plan to respect that.
-
+This story is officially published on Kakuyomu, at https://kakuyomu.jp/works/16817330668626245437, as かませ役♂に憑依転生した俺はＴＳを諦めない. This fan translation was done by [🌙](https://rinion.studio) and has no affiliation with the author, nor other existing translations of this work. This is a purely personal project, with no paywall. If the author or other related parties request it to be taken down from hosting, I plan to respect that.
+# First Passage — Awakening the Star-Reader
 ## 1. Normally, when you get reincarnated, you end up as a beautiful girl, right?
 
 Ever since ancient times, persisting as a common language past the era of the Tower of Babel, this phrase has existing in dialog and thought: "A world entirely of cute girls sounds nice, doesn't it?"
 
-There is nothing better than becoming a beautiful girl.
-And for that very reason, I, facing my oncoming death, made a prayer.
+There is nothing better than becoming a beautiful girl. \
+And for that very reason, I, facing my oncoming death, made a prayer. \
 In that minuscule instant, shorter than a second, as a truck barreling through a red light reduced my body to shreds of meat, I prayed:
 
 "Please, god, make me in my next life a beautiful girl a beautiful girl a beautiful girl a beautiful girl a beautiful girl—"
@@ -28,7 +27,7 @@ Next, the bad news.
 
 "You mean to tell me I'm this *loser*!?"
 
-It would seem that I had been placed in the body of an one-off jobber-role character.
+It would seem that I had been placed in the body of an one-off jobber-role character. \
 And to add insult to injury, only after he had served his purpose.
 
 ■
@@ -39,10 +38,10 @@ I have been reincarnated, into the body of a boy named Narō Kei. You might gues
 
 There's a manga I'd been reading, called *Mirror-Edge Lutra*[^1]. One of those stories with the modern-day dungeons. The writing itself was at the level of your average webnovel, but what got me hooked was how good the art was. I found myself looking forward to its weekly updates, and got so into the series that I even bought a few volumes of its spin-off novel series.
 
-The story goes, in simplest terms, like so:
+The story goes, in simplest terms, like so: \
 The protagonist, exiled from a certain renowned family, finds in a modern-day dungeon a peculiar girl who can shift into the form of a weapon, makes a contract with her, and rises to fame. It's a very fluffy and lighthearted adventure story.
 
-And as for me,
+And as for me, \
 Kei is the loser rich kid (♂) of a different large family, who is the entire reason the protagonist finds that girl in the first place. This kid tries to kill off the protagonist by shoving him into a dungeon when he can't fight well—the very dungeon the girl had been sealed away in. He makes a contract with her, and the two of them clear the dungeon in spectacular fashion. Kei challenges the protagonist to a duel after the protagonist makes it out of the dungeon. Not only is his defeat extremely embarrassing, all of his other foul deeds in the academy come to light.
 
 Verdict? Guilty.
@@ -53,8 +52,8 @@ Redemption arc? Forget about it.
 
 "And my account balance is... 1300 yen."
 
-I toss my passbook away.
-It's been 3 days since I've reincarnated.
+I toss my passbook away. \
+It's been 3 days since I've reincarnated. \
 After processing the impact from that truck, I found myself standing here, in this body. This room, presumably his place, was about as tidy as the wake of a tornado. I could easily deduce the likely culprit: he lost to the protagonist, and went on a tear from corner to corner.
 
 I have spent the past 3 days repairing the damages to the best of my ability, and also catching up on common knowledge for the setting, which brings us all the way back around to the conclusion we started at.
@@ -69,9 +68,9 @@ And, more important than any of that.
 
 Now *I'm* the one crashing out.
 
-I can manage being thrown a loser's lot.
-I can tolerate these post-jobbing circumstances.
-*However.*
+I can manage being thrown a loser's lot. \
+I can tolerate these post-jobbing circumstances. \
+*However.* \
 WHY must I be consigned to a male body in this fantastic world!
 
 "I wanted to be a girl...! To join some sort of eccentric club, experience my own Kirara Jump...!"
@@ -88,13 +87,13 @@ Gatō Touraku-kun. The protagonist of the series. Not only is he a hard worker, 
 
 "With Kei and therefore myself just having been condemned by the world, it would be in the first year of high school, around May... This is where the story begins in earnest, huh? Lots of events. Lots of *fun* events."
 
-I found the plot points coming to mind all of a sudden:
-Combat in a secret biological-weapon sort of dungeon.
-A school-vs-school competition arc, with the rights to clear an S-rank dungeon as the prize.
-Fighting with creatures carrying the names of angels.
+I found the plot points coming to mind all of a sudden: \
+Combat in a secret biological-weapon sort of dungeon. \
+A school-vs-school competition arc, with the rights to clear an S-rank dungeon as the prize. \
+Fighting with creatures carrying the names of angels. \
 All-out war against a dungeon that replicated the entire academy-city, and even more past that.
 
-As a reader, all of them are events that are rather enjoyable to read.
+As a reader, all of them are events that are rather enjoyable to read. \
 For Touraku-kun, well, every time he seems to end up on the verge of death, doesn't he? To the point that fans find it noteworthy on the rare occasion he doesn't end up at least *wounded*.
 
 "And that's before we even get to what he lucks into with his harem. In fact, Touraku-kun himself turns into a girl one time—oh."
@@ -103,12 +102,12 @@ The words leaving my mouth send a shock through me. This is what it must feel li
 
 "Tha- That's it! I still have one chance left...!"
 
-I had found my snowball's chance in this hell.
+I had found my snowball's chance in this hell. \
 And I only have to wait one year.
 
 "The one-of-a-kind gender-changing dungeon should appear. In a year, in this story!"
 
-Of course, in the plot of the series, it's written off for comedy.
+Of course, in the plot of the series, it's written off for comedy. \
 For me?
 
 "With this... I think I can make it work."
@@ -117,13 +116,13 @@ I don't need to rise to the top of this world, and I could care less about clear
 
 "My life as a student starts now. My career path: Aiming for transition!"
 
-My fists are clenched tight with excitement and adrenaline.
-My lifelong dream is now within a year's reach.
+My fists are clenched tight with excitement and adrenaline. \
+My lifelong dream is now within a year's reach. \
 Nothing left to do but give it my all!
 
 "First order of business! I'm transferring out!"
 
-It didn't take me long to put together a plan.
+It didn't take me long to put together a plan. \
 The academy-city I'm currently standing in is named Hinotsuchi, a massive artificial landmass resting atop the Pacific Ocean. It's comprised of over a thousand individual academies and places of research, and it also serves as a training grounds for the divers, the people who explore and clear the settings' dungeons. It isn't quite a city-state, but the self-governance it does have is by-and-large enacted and managed by the students themselves. They keep the city running, and even deal with external companies and corporations as needed.
 
 And, within that myriad of academies, the one I (by way of Narō Kei) have been attending is named Mikage. One of the Four Big Schools within Hinotsuchi, both in popular perception and its actual campus size, it houses over 500,000 students. Honestly, it's enough to pass for a small city on its own. It's acceptance policy is quite strict on adventuring skill and academic marks, though... Kei of course paid his way in. Not to say he's *weak*...for the first volume. Since he would go on to not bother to train himself later in the story, you can count on one hand the amount of times he'd win a fight.
@@ -134,8 +133,8 @@ Narō Kei, after his downfall and losing the funds that would pay for his tuitio
 
 "Is there any corner of this city with super cheap tuition, anywhere at all..."
 
-The academy listings whiz by on my smartphone.
-First, as mentioned, is transferring schools.
+The academy listings whiz by on my smartphone. \
+First, as mentioned, is transferring schools. \
 With as many options as there are locations in this academy-city, students transfer schools all the time. It's to the level that you could consider each academy just a large club or circle of creators with temporarily aligned interests, rather than separate high schools. In this melting pot of school cultures and individual institutions, it's not actually that difficult to find ones that choose to carve their niche via sheer affordability.
 
 "Oh! The cheapest option possible! Free dormitory accommodations, tuition waived, all other fees waived, it would only cost me a grand total of zero yen! ...*Zero* yen!?!?!?"
@@ -146,8 +145,8 @@ The hell are *their* circumstances?
 
 Internet, show me their information.
 
-It would appear... nearly all their students have left, and the academy itself has basically given up.
-However.
+It would appear... nearly all their students have left, and the academy itself has basically given up. \
+However. \
 If it lets me hold out for the year I need to wait for the Transgendering Dungeon, that's enough for me. To attempt to clear a dungeon, you need to be actively enrolled at *an* academy. It doesn't actually matter if the school's credentials are any good or not, just that they exist.
 
 "Fectom Comprehensive Academy... Never heard of it."
@@ -166,7 +165,7 @@ A rumor spreads across the academy district like a flash flood—*A student is t
 
 "Oi, Miroku! It's real, aye? We got transfer students incoming!?"
 
-She hops over to the other girl, her red hair bouncing along behind her in a ponytail.
+She hops over to the other girl, her red hair bouncing along behind her in a ponytail. \
 The blue-haired Miroku gives her a brief glance in acknowledgement of her dramatic entry, and immediately resumes working on her stack of paperwork.
 
 "Toa-chan told you already, then? Haa. I was planning to be the one to let you know, so you wouldn't make a fuss about it."
@@ -475,8 +474,8 @@ I'm moved to tears... Right there, on the other side of my mirror, is a beautifu
 
 "She's cute. ...Yeah, it's better if she acts cold or aloof. She seems like the type of character to be carrying some sort of inner darkness with her."
 
-A broken mirror in a run-down dorm room.
-In the middle of it all stands a mysterious, beautiful girl.
+A broken mirror in a run-down dorm room. \
+In the middle of it all stands a mysterious, beautiful girl. \
 It couldn't be more perfect.
 
 "Hehe."
@@ -598,7 +597,7 @@ I push myself forward through the opening. There was no doubt that this was not 
 
 
 
-Inside proved to be a spacious semicircle. The ceiling appeared to be designed to let natural light in, and the stars were visible through the massive skylight. Right in the center of all this, illuminated by the dungeon's moonlight, there was... A large black scythe, which aside from its color looked like something you would find in a farmer's shed. It looked about my height, and had been placed within a pedestal.
+Inside proves to be a spacious semicircle. The ceiling appears to be designed to let natural light in, and the stars are visible through the massive skylight. Right in the center of all this, illuminated by the dungeon's moonlight, there is... A large black scythe, which aside from its color looks like something you would find in a farmer's shed. It looked about my height, and had been placed within a pedestal.
 
 "Now what is this... Nothing like it ever showed up in the story."
 
@@ -610,7 +609,7 @@ Treasures with that classification are formed every now and then from the ambien
 
 "Relic weapons tend to be pretty rare, but it's not impossible for one to show up in a starter dungeon."
 
-I had already thought of the possibility that this was something important to Fectom Comprehensive Academy, and immediately dropped that line of thought. There's no way the academy would have held on to something this valuable given how strapped for cash they are in every other aspect. Plus, a door like that crumbling to dust shows that nobody has been here to take care of it in a very long time, so there's probably nobody who even knows this thing exists.
+I had already thought of the possibility that this was something important to Fectom Comprehensive Academy, and just as immediately dropped that line of thought. There's no way the academy would have held on to something this valuable given how strapped for cash they are in every other aspect. Plus, a door like that crumbling to dust shows that nobody has been here to take care of it in a very long time, so there's probably nobody who even knows this thing exists.
 
 So,
 
@@ -632,7 +631,7 @@ I'm overcome with the feeling of my insides revolting, a mix of nausea and pain,
 
 ...Wait, that's entirely manageable.
 
-"Ugh! Urrrrrhhhhhhhh!!!!!"[^6]
+"Ugh! Urrrrrhhhhhhhh!!!!!"
 
 The waves of pain continue, as if the scythe itself was rejecting my attempt to take it. But I'm not about to let it go. I'm going to sell this thing! Turn it into cash, get praised by my seniors, and then join the Yuri Party!
 
@@ -674,7 +673,6 @@ Experiencing wealth getting stolen away from me like this has just made it more 
 
 The ground gives way beneath me. *Ah, the corridor must also have worn away*, the rational part of my mind remembers to chime in.
 
-[^6]: Translating the random noises she makes is difficult.
 
 
 ## 5. Mysterious Beauties are guaranteed to have a certain power level.
@@ -778,7 +776,7 @@ Thank you for the tactical readout. ...Wait, you sound like you've had to watch 
 
 While the various finisher ideas were running through my head,
 
-«■■■■■»
+« ■■■■■ »
 
 I received something between an electrical impulse and a voice in my brain. It delivered the understanding of how to use this scythe, as well as its name.
 
@@ -842,21 +840,21 @@ Kuramu took up a pose in front of her camera. The autonomous drone, fitted for d
 
 She was once again doing her exclusive exposé streaming, targeting Kisō Academy. And in a matter of moments, comments began scrolling across a small translucent panel projected from her DiveGear.
 
-: you kept us waiting\
-: There she is, The Fugitive\
+: you kept us waiting \
+: There she is, The Fugitive \
 : Kon-Jōka![^11]
 
 "Oh, you're all just raring to go today aren't you? Well, like I said the other day in a post, today we're going to be uncovering Kisō Academy's dark secrets~! Yay! Oh President of the Student Council, ya watching? ...One of these days, I'll pull you right out of that chair."
 
-: eep
-: how have they still not caught this idiot?
+: eep \
+: how have they still not caught this idiot? \
 : the absolute lunacy of trying to expose Kisō, while still attending Kisō
 
 The overall vibe of the comments was that Kuramu had some good reasons to be worried, but the Kuramu in question didn't particularly seem bothered by anything.
 
 "Today is the fourth episode in the *Bring Down Kisō Plan* series, and I swear, this is the day we get through it, okay? Every time it's either the disciplinary committee or the Enforcer trying to lock me down, and we barely miss out on nabbing any evidence."
 
-: we're so close! (1 exploded illegal research facility)
+: we're so close! (1 exploded illegal research facility) \
 : Honestly, it's impressive you can outrun the Enforcer like that
 
 "And since that's always been our problem, I got myself thinking: *What if we just went someplace the academy's guard dogs couldn't follow us?*"
@@ -865,9 +863,9 @@ The overall vibe of the comments was that Kuramu had some good reasons to be wor
 
 "Right? So, that's all to say I'm currently doing a bit of tresspassing on another academy's grounds. Ah, I won't tell you even if you ask, okay? They'd just start sending *their* committee after me."
 
-: oh my god she actually broke in\
-: Yes, Disciplinary Committe? Get this girl.\
-: go go go go go!\
+: oh my god she actually broke in \
+: Yes, Disciplinary Committe? Get this girl. \
+: go go go go go! \
 : wonder if she'll come to my place next...
 
 All of the chat members were as boisterous as usual. Kuramu waited for her view count to cross 10,000 before she actually started moving, and then made her way through a dense forest. She was able to follow the directions she'd been given without getting lost in the trees, and eventually arrived in front of some sort of facility.
@@ -884,16 +882,16 @@ Yes. The DiveGear equipment Kuramu wielded was a frog-shaped machine she created
 
 "Whew! Great work as always, Mā-chan."
 
-: Weapon of Mass Destruction\
+: Weapon of Mass Destruction \
 : yyep. she's a Kisō student alright.
 
 She thrust her finger out as soon as the dust cleared, pointing at a large staircase within the hole that explosion had just torn open in the ground.
 
 "Look! An entrance to a hidden research facility, right here! With this, I think today's stream is guaranteed to be a big one! Oh, but Kisō is almost definitely going to get the VOD taken down, so remember to save it yourselves to share later, mkay~?"
 
-: hop to it everyone!\
-: which academy's dungeon is this tho, actually\
-: every time you say that and every time you can't bring anything back\
+: hop to it everyone! \
+: which academy's dungeon is this tho, actually \
+: every time you say that and every time you can't bring anything back \
 : It's gotta be pitch-black in there, be carefulll
 
 Kuramu let the comments flow by while she started descending the stairs. The inner walls of this place were covered in dust and grime, which gave more credit to the idea that this had been abandoned together with the management facility a decade back. Even so, there must have still been some electricity supplied here, keeping the emergency lights along the corridors as a sole remaining source of light.
@@ -902,7 +900,7 @@ She continued deeper in, with just the emergency lights and that of her DiveGear
 
 "A rather strange number of cages here, no? ...As I suspected, this is where they were performing those experiments."
 
-: "those experiments"?\
+: "those experiments"? \
 : share the experiment details with us tooo
 
 Kuramu rummaged around in one of the cages while she answered the comments she saw come in.
@@ -913,9 +911,9 @@ Kuramu had heard two things further: The plan had already fallen through, and se
 
 "The Gear, which the project named DemonGear, used at least one girl with the necessary aptitude as a base. By treating the the soul itself as code, the user of such a Gear can reach a much higher level of performance than conventional DiveGear."
 
-: I've heard about this a bit in urban legends\
-: no way that could actually exist\
-: terrifying\
+: I've heard about this a bit in urban legends \
+: no way that could actually exist \
+: terrifying \
 : How can you even set your sights on something that dangerous?
 
 Her chat split into three types of responses, but Kuramu just silently continued her exploration as she watched them scroll by. Several of her frogs hopped around her like a security detail.
@@ -932,8 +930,8 @@ Kuramu's goal was complete eradication of Kisō Academy's corruption. She didn't
 
 "Okay, this is the final room left to break into. The door looks prety bulky... Mā-chans, you're up!"
 
-: her Calling Card!\
-: A woman who knows nothing but the path of explosions.\
+: her Calling Card! \
+: A woman who knows nothing but the path of explosions. \
 : this is why you set off every alarm that exists
 
 "Oh, would you all quit it with that? This place is years out of commission. If any alarms *do* go off, I can just ignore them!"
@@ -942,7 +940,7 @@ Kuramu sent the frogs flying at the door together with her declaration. Once sev
 
 "I *knew* that would do it."
 
-: it's the only way to do it you know\
+: it's the only way to do it you know \
 : she's cute when she's smug
 
 Without even letting the smoke clear, Kuramu then threw herself through the opening and into the next room. Unlike the rest of the facility, this one had a proper supply of power to it. It was still quite dark, but there was at least a low level of light coming from the various monitors and the massive supercomputer embedded in the wall.
@@ -955,9 +953,9 @@ She had no logical reason to assume anything more, but her intuition strongly to
 
 "The appearance of a young girl... No way, could this be the DemonGear?"
 
-: in the flesh!?\
-: this stream is peak!\
-: Purge-chan, well done!\
+: in the flesh!? \
+: this stream is peak! \
+: Purge-chan, well done! \
 : Let's find that evidence that this is Kisō Academy's work!
 
 "R-right. Let's look around for some evidence. ...To be honest, I never expected the actual product to be here still... What should we do? I didn't plan anything around this—ah!?"
@@ -974,10 +972,10 @@ Her only exit was sealed. She thought over the situation for just a moment befor
 
 "Cool. Let's just blow everything up and run away."
 
-: the Escape Sequence has started\
-: so the usual\
-: again?!\
-: she's a walking liability\
+: the Escape Sequence has started \
+: so the usual \
+: again?! \
+: she's a walking liability \
 : Girls like blowing things up too?
 
 "Hey, even I wouldn't blow up *this* room, okay? I went through all this trouble and finally found a DemonGear—with this in my hands, I can drag in other schools under the pretext of recovering it from Kisō Academy! This is an absolutely priceless opportunity."
@@ -988,9 +986,9 @@ After saying that, Kuramu started sending countless frogs through the hole in th
 
 Kuramu instead attaches frogs to the door, and with their explosions, it's reduced to mere fragments, leaving the hole in the center large enough for the flesh-colored thing outside to finally enter. And enter it does, slowly.
 
-: Gross!\
-: the hell is THAT!?\
-: absolutely not a human\
+: Gross! \
+: the hell is THAT!? \
+: absolutely not a human \
 : Dungeon Boss? though, I can't say I've seen any like this one...
 
 The chat, much like the door, suddenly exploded with activity seeing the humanoid monster. It had no face, and looked rather like someone fashioned it out of flesh-colored clay. But it obviously had a will of its own, and that had it walking in here at Kuramu.
@@ -1005,13 +1003,13 @@ An even greater swarm of frogs emerged from her DiveGear, which she threw as the
 
 "Yeesh! That was really really really close just now!"
 
-: doesn't this also destroy the rest of the room?\
-: she blew it all up\
+: doesn't this also destroy the rest of the room? \
+: she blew it all up \
 : Nooo the girl!
 
 "Oh, don't worry about that. My Murder Frogs can act as directed explosive charges, so only that monster is getting roasted."
 
-: She says the most terrifying things...\
+: She says the most terrifying things... \
 : did you kill it?
 
 Kuramu shook her head.
@@ -1026,7 +1024,7 @@ The monster re-emerged from the smoke. Kuramu may have been taken off guard agai
 
 "*Obviously* the Enforcer, it isn't even close!!"
 
-: okay you're still pretty chill about this lol\
+: okay you're still pretty chill about this lol \
 : yay, looks like another clean getaway this time
 
 Her chat continued joking about the situation, in stark contrast to how desperate she felt. She threw a few mental curses at them, but continues running.
@@ -1049,9 +1047,9 @@ She'd run dry on Murder Frogs.
 
 *It completely repairs itself within about 2 seconds after each Murder Frog goes off. My last one went out 5 seconds ago. I'm going to be cutting this really close...!*
 
-: isn't this really bad?\
-: Get out of there, Jōka-chan!\
-: We should call the Enforcer. You can't afford to get grabbed by this thing\
+: isn't this really bad? \
+: Get out of there, Jōka-chan! \
+: We should call the Enforcer. You can't afford to get grabbed by this thing \
 : even if we want to call them in on her, she hasn't said which academy's dungeon she's at!
 
 By now, even the chat had realized how much danger Kuramu is in, and they tried to prompt her to reveal which school she's at, but she refused to say.
@@ -1100,10 +1098,10 @@ She also noticed something else.
 
 "Ah. The academy's name..."
 
-: Fectom Comprehensive Academy?\
-: the evidence got doxxed lmao\
-: fectom? where even is that\
-: Oh, I sorta remember hearing that school was strong, back in the day, maybe.\
+: Fectom Comprehensive Academy? \
+: the evidence got doxxed lmao \
+: fectom? where even is that \
+: Oh, I sorta remember hearing that school was strong, back in the day, maybe. \
 : That's my mom's alma mater, lol
 
 Kuramu managed to keep a lid on her emotions despite having her location exposed, and continued the conversation.
@@ -1190,7 +1188,7 @@ Kuramu let out a small vocalization as the energy of that magic ripples backward
 
 *That... Just what...?*
 
-"Hooh."  
+"Hooh."
 
 The girl in front of her let out a sigh. Kuramu's head is full of questions, and while she spoke up again, that action was prompted by the thought that if she didn't right now, the girl would vanish completely.
 
@@ -1212,13 +1210,13 @@ Kuramu understood that she was talking about the DemonGear. And while she wanted
 
 She collapsed to the floor as her body is finally allowed to react to everything that had just occurred. In an effort to regain some composure, she flicked back open the chat panel with one of her trembling hands, and as you'd expect, they were all abuzz wondering about that girl.
 
-: What just happened!?\
-: damn, i wonder what rank she is\
-: S, I'd bet. She'd make it 8 people total in that rank, right?\
-: never heard of a Sorcière, tho\
-: Purge-chan's as strong as you can get in B rank without moving up to A, and this girl completely demolished a monster that was giving her trouble. So S rank makes sense to me.\
-: chat, if she was really an S rank, the Apis Umbrella[^13] would have made an announcement about her. she prob just had an insanely good matchup here\
-: how is she not already famous, even if she's at an otherwise super weak school?\
+: What just happened!? \
+: damn, i wonder what rank she is \
+: S, I'd bet. She'd make it 8 people total in that rank, right? \
+: never heard of a Sorcière, tho \
+: Purge-chan's as strong as you can get in B rank without moving up to A, and this girl completely demolished a monster that was giving her trouble. So S rank makes sense to me. \
+: chat, if she was really an S rank, the Apis Umbrella[^13] would have made an announcement about her. she prob just had an insanely good matchup here \
+: how is she not already famous, even if she's at an otherwise super weak school? \
 : She's really pretty... Imagine if she started streaming.
 
 "That was amazing, wasn't it chat? It's a miracle we had the camera rolling to capture that. That student isn't someone I'm familiar with, so if anyone watching has any information on her, my DMs are always open~"
@@ -1546,8 +1544,8 @@ Wait, he's going for me!?
 
 "!? Kei!"
 
-I hear Mizuhi-senpai scream out again.
-I see Rokuhara-san's paired blades bearing down on me. His favorite weapon.
+I hear Mizuhi-senpai scream out again. \
+I see Rokuhara-san's paired blades bearing down on me. His favorite weapon. \
 I parse the attack I'm confronted with—and throw myself out of the way.
 The space one human body can fit in is torn asunder, and the ground responds with a cloud of dust as it's hit.
 
@@ -1565,7 +1563,7 @@ Rokuhara-san bursts into a flurry of strikes from his blades, all aimed at me. W
 
 I'm just about to respond with a *Why the hell should I know!* when my eyes catch sight of the crimson bracelet on my left arm. It's this thing's doing, I just know it! This is the only thing that could be elevating my dynamic vision and responses to the ridiculous level we're operating on. And as soon as I make that judgement, it starts begging and pleading in my head.
 
-«■■■■■»
+« ■■■■■ »
 
 A sensation I'd never felt before, like it's pouring sparkling water into my synapses, and it wants me to speak aloud the name Sorcière.
 
@@ -1702,7 +1700,7 @@ All of us bring our guards back up as Rokuhara-san says that. But seeing our rea
 
 No, but I really don't know what you're talking about.
 
-«■■■■■!»
+« ■■■■■! »
 
 No no, Star-Reader Staff, you don't count as something up my sleeve. You're an item I can cash in later.
 
@@ -1795,22 +1793,22 @@ I'm so glad we didn't end on any weird misunderstandings.
 
 ## 10. The Pale-Blue Star and the Beautiful Girl[^20]
 
-One week.
+One week. \
 That is the length of time I, Aohoshi Miroku, had spent sharing a school with a boy named Narō Kei.
 
 My first impression of him was that he was rather earnest type of person. However, it was in the process of conducting the school transfer interview with him that I realized there was something more he had, lying beneath the surface.
 
 *"There is a mission I must see through."*
 
-A mission.
+A mission. \
 For him, that is something to pour everything he has into. It is the sole reason he exists, and something he will not hesitate to throw away his life for.
 Just like the instructor that was my role model.
 
 So, this time will be different.
 
-If I can ensure he remains alive, then that will surely allow myself to finally move forward, from that day I've remained frozen in without being able to progress or let go.
-...Or at least, that was the hope that I gave myself.
-This would be my atonement, this was my hypocrisy, these were my pretenses.
+If I can ensure he remains alive, then that will surely allow myself to finally move forward, from that day I've remained frozen in without being able to progress or let go. \
+...Or at least, that was the hope that I gave myself. \
+This would be my atonement, this was my hypocrisy, these were my pretenses. \
 I, through the avenue of the boy named Narō Kei, was attempting to save the tomorrow of a day that would never return.
 
 And that was my mistake.
@@ -1930,13 +1928,13 @@ Rokuhara, I am certain, glances at us as he said that.
 
 "I see."
 
-Kei-kun responds tersely. It's with a tone—that I couldn't have imagined coming from someone as deferential and warmly spoken as him—that chilled to the bone.
-*If things had played out differently, if we had not been here, then perhaps even against Rokuhara, Kei-kun might have been able to*—
+Kei-kun responds tersely. It's with a tone—that I couldn't have imagined coming from someone as deferential and warmly spoken as him—that chilled to the bone. \
+*If things had played out differently, if we had not been here, then perhaps even against Rokuhara, Kei-kun might have been able to*— \
 That is the sort of thoughts that tone gives rise to.
 
 "So then, shouldn't you have somewhere else to run off to?"
 
-Kei-kun speaks as if spitting those words out.
+Kei-kun speaks as if spitting those words out. \
 Rokuhara shrugs, and calls out the girl's name. Then, with an "Aight, let's get going", the two of them leave the area.
 
 Toa-chan lets out a large breath from beside me, and lowers her artillery.
@@ -1991,15 +1989,15 @@ They are pretty silly words.
 
 "Then for now, that's enough for me."
 
-Yes. Just that is what this should be remembered as.
-Saving one's friends and colleagues.
+Yes. Just that is what this should be remembered as. \
+Saving one's friends and colleagues. \
 That is how this particular story should come to an end.
 
-I turn back to look at Kei.
-He has very blue eyes.
-The kind of blue that remind me of the endless depths of the ocean, as if his eyes are a direct reflection of his heart.
-If nobody were to reach out to him, then he will surely sink into that ocean itself.
-It's perhaps strange to think that, but that is a certainty I feel.
+I turn back to look at Kei. \
+He has very blue eyes. \
+The kind of blue that remind me of the endless depths of the ocean, as if his eyes are a direct reflection of his heart. \
+If nobody were to reach out to him, then he will surely sink into that ocean itself. \
+It's perhaps strange to think that, but that is a certainty I feel. \
 Therefore,
 
 "...If you ever need help yourself, be sure to say something, to any of us. We can all help you out."
@@ -2008,18 +2006,18 @@ Therefore,
 
 I wonder what he's thinking as he replies. It's not something I have any way of knowing, though, as we've only known each other for a week before now.
 
-Still, there is one thing. One thing that I *do* know.
+Still, there is one thing. One thing that I *do* know. \
 I have been massively mistaken.
 
-The expression he had shown for mere moments, that I could still nearly cry over, that appearance like an abandoned child?
-That was me.
-That was the me of that day, powerless as I was left behind by our instructor.
-That was me, a complete failure, unable to even shed tears.
-I had understood, in that moment, what it was that I had seen in him.
-It was not my instructor.
+The expression he had shown for mere moments, that I could still nearly cry over, that appearance like an abandoned child? \
+That was me. \
+That was the me of that day, powerless as I was left behind by our instructor. \
+That was me, a complete failure, unable to even shed tears. \
+I had understood, in that moment, what it was that I had seen in him. \
+It was not my instructor. \
 It was myself, how I must have looked chasing after her, striving to be what she was.
 
-"Fufu."
+"Huhu."
 
 "...Miroku-chan?"
 
@@ -2027,22 +2025,22 @@ It was myself, how I must have looked chasing after her, striving to be what she
 
 A smile of self-deprecation sneaks out onto my lips.
 
-I do understand.
-He as well was unable to save that person.
+I do understand. \
+He as well was unable to save that person. \
 His strength is surely built atop the regret he carries from that tragedy.
 
 I am the same.
 
 He and I are the mirror image of each other.
 
-So, I have no choice but to accept it: I, through the boy Narō Kei, had been trying to save the future of a day that would never come again.
-But I had been mistaken.
+So, I have no choice but to accept it: I, through the boy Narō Kei, had been trying to save the future of a day that would never come again. \
+But I had been mistaken. \
 He, like myself, is someone who deserves to *be* saved.
 
 Here is when I, in the truest sense of the word, considered him as one of my companions.
 
-We are cowards, who couldn't do anything.
-We are the scattered, who could not be rescued.
+We are cowards, who couldn't do anything. \
+We are the scattered, who could not be rescued. \
 We, despite all that, fight on, believing the day will come when we can save ourselves.
 
 I suddenly look over at Kei. There is a fiery emotion in my chest that I have never felt before.
@@ -2842,11 +2840,11 @@ The only one who can tip the scales here is me.
 
 ...No, the only one who can tip the scales here is Sorcière!
 
-«■■■■■!!!»
+« ■■■■■!!! »
 
 That's not your cue, get back off stage. I'm talking about me, as a girl!
 
-«■?»
+« ■? »
 
 Now why do I feel like that just pissed you off even more.
 
@@ -2878,7 +2876,7 @@ Speaking of the cloud, besides that swirling around in this final room, there's 
 
 "Senpai, I'm on my way...!"
 
-I stand, channeling my resolve—
+I stand, channeling my resolve— \
 and I strip off my uniform.
 
 Then, from the spatial compartment of my DiveGear, I retrieve the specific items I had stored in there earlier. The function is generally intended for carrying any relic items that show up in a dungeon, but I quickly deduced that it has one, much truer purpose.
@@ -2893,7 +2891,7 @@ Through the power beautifulgirlification imparts me, I'm able to finish changing
 
 After all, I couldn't even do my makeup down here. And you've gotta mask your lips with *something*.
 
-«■■■■■»
+« ■■■■■ »
 
 Right after I put the finishing touches on, information is delivered directly to my brain.
 
@@ -3710,11 +3708,11 @@ Is! Me!
 
 Yeeeeaay, Sorcière here!
 
-«■■ー■!»
+« ■■ー■! »
 
 Again, I didn't call on you, sit back down.
 
-«■!?»
+« ■!? »
 
 Opposition blasts in my mind, but I let it go in one mental ear and out the other.
 
@@ -3782,11 +3780,11 @@ I get the feeling Miroku-senpai might be the type of person to have fun with som
 
 Now, that's a bit of an oversell, I must say. It's not really *me* that's the strong one here. We should be thanking the venerable Star-Reader Staff for my resilience.
 
-«■■■■»
+« ■■■■ »
 
 Who I am still selling off at the first chance I get. I know a source of trouble when I see one.
 
-«!?»
+« !? »
 
 Anyway, while we let the Star Reader Staff filibuster into the part of my brain I'm ignoring on this fine morning, I tilt my neck to the side.
 
@@ -3836,7 +3834,7 @@ That was way too close! I got so apologetic the apology just came out on its own
 
 I am also aware of the announcement the Apis Umbrella made. They stuck a classification of an ability *I* don't even know about, and it really sent me for a loop. Like hell I can actually do that. There'd be nothing to worry about if I could set loose other S ranks willy-nilly like that!
 
-«■■■■»
+« ■■■■ »
 
 Hell, I can actually do that?
 
@@ -3844,7 +3842,7 @@ So, I actually did temporarily raise Mizuhi-senpai up to S rank?
 
 I was fully convinced that my Beautiful Girl Synergy with Mizuhi-senpai had caused a resonance, blooming out into a beautiful display of power... You know, like The Power of Friendship, or a secret move where, ignoring the rules of efficiency, two people combine into one for a finishing move...
 
-«■■■■■»
+« ■■■■■ »
 
 Oh, so that's real too, but it's different from what we did.
 
@@ -4203,7 +4201,7 @@ I leap backward, bringing my weapon up again.
 
 I'll admit, that's a bit troublesome.
 
-«■■■■■»
+« ■■■■■ »
 
 Sure, if I let you go wild, that's certainly a win. But I can't manage to crossdress right now, so it really puts me in a bind...
 
@@ -4247,11 +4245,11 @@ Toa-chan? Get burned?
 
 I refuse to let that happen.
 
-«■■■■■»
+« ■■■■■ »
 
 No room to change. No time to, either. But that doesn't mean I can just ignore these boiling emotions.
 
-«■■■■■»
+« ■■■■■ »
 
 I know.
 
@@ -4267,7 +4265,7 @@ I open my mouth again.
 
 "Sorci "Hold it right theeeeeereeeeee!" ...è?"
 
-«■?»
+« ■? »
 
 At that other voice, both me and the other two students stop. But, the leader-guy is approaching Toa-chan and—
 
@@ -4898,7 +4896,7 @@ It does to me too, for the record. My uniform itself hasn't changed, but everyth
 
 I just have one question: Why!?
 
-«■■■i!»[^38]
+« ■■■i! »[^38]
 
 It was you!
 
@@ -4906,13 +4904,13 @@ It was you!
 
 She's just gonna be plain perplexed.
 
-«■■■■»
+« ■■■■ »
 
 Oh, you can reverse it? You're more flexible than I thought.
 
 ...I guess I don't need the wig anymore, in that case. I have to admit, you are pretty useful after all.
 
-«■■■■■!»
+« ■■■■■! »
 
 But it's kind of scary, though. It means you're meddling with my body, right?
 
@@ -4962,11 +4960,11 @@ Just then, a voice calls out to us both.
 
 Faster than her sentence can finish, my hair shimmers and shifts. Woah, instant! And touching it to check, it's back to exactly its previous length. Yeah, this is real convenient!
 
-«■■■■■»
+« ■■■■■ »
 
 However, that doesn't mean I've fully decided to not sell you.
 
-«■!?»
+« ■!? »
 
 I quickly mumur to Purge-chan, while she turns her attention to Toa.
 
@@ -5319,11 +5317,11 @@ Looking at it from the outside, this is certainly different from my CB as Sorci�
 
 ...It's probably cooler to have the circles, and all that.
 
-«■■■■»
+« ■■■■ »
 
 Oh, you can do them too? Then let's add that to the repertoire. When we're casting stuff, we can toss out a bunch of them just to be flashy.
 
-«■■■■■■■■■■■■■»
+« ■■■■■■■■■■■■■ »
 
 Oh, really, the design is personal? What should I do about that, then...
 
@@ -5608,11 +5606,11 @@ Touraku-kun grows gloomy. Of course, so do I. But, forgive me. This is how Rokuh
 
 Hey, my right arm really hurts. Is that okay? I'm not the one in danger here, am I?
 
-«■■■»
+« ■■■ »
 
 What's up I'm busy right now talk to me later.
 
-«■■■■■!»
+« ■■■■■! »
 
 Eh, you're interested in Lutra? That's no good, letting something that draws misfortune so close to her. Look! Here! I'm returning Lutra to Touraku-kun!
 
@@ -5890,7 +5888,7 @@ If I was a beautiful girl in this current situation, then I would be able to enj
 
 Thus! I need to become a beautiful girl myself, as quickly as possible!
 
-«■■■■■»
+« ■■■■■ »
 
 I already said I wouldn't be using you to do that! It's definitely got strings attached, doesn't it?
 
@@ -5930,7 +5928,7 @@ Some sort of reason as the inciting incident pushes Toa-chan and the mysterious 
 
 That's the good stuff!
 
-«■■..."*
+« ■■... »
 
 And why are *you* cringing!? It's introvert x cold personality! Comprehend!
 
@@ -6018,7 +6016,7 @@ Hi, hello, I'm dressed up again~!
 
 Yaaaaay!
 
-«■a■■■!»
+« ■a■■■! »
 
 Yoo, Sorcière's all fired up too!
 
@@ -6072,13 +6070,13 @@ I gently brush my right arm where it's bandaged. The pitch-black scythe stands t
 
 This, too, is a wonderfully beautiful girl.
 
-«■■■, ■■■■?»
+« ■■■, ■■■■? »
 
 Woah, you already finished the magic circuit design? Nice! Has anyone ever told you you're quite talented?
 
 Alright, so, just put out one past my arm when I reach out. I'll play with that.
 
-«■■»
+« ■■ »
 
 With Star-Reader Staff's spirited agreement, I stretch my right arm over the city. As my fingers splay open, a magic circuit deploys from them in a meter-wide circle. Deep blue and purple devour each other and dance about, the balance of colors constantly in flux. The formulas and character strings carry no meaning or direction, but they fit the vibe, which means they're correct.
 
@@ -6314,10 +6312,10 @@ Mihaya had become intimately familiar with Touraku's nature, self-sacrifice to a
 
 "He overdid things again. He keeled over inside the dungeon, and I can't help but wonder if it was partly from how he always wears himself out. He's always busy with student council work, on top of all this."
 
-She had, until now, prevented his story from becoming a tragedy. That protection was the best she could offer.
-She had spotted him in training to make sure he wouldn't overdo things.
-She had accompanied him on his student council activities.
-She had made sure that he was still eating properly.
+She had, until now, prevented his story from becoming a tragedy. That protection was the best she could offer. \
+She had spotted him in training to make sure he wouldn't overdo things. \
+She had accompanied him on his student council activities. \
+She had made sure that he was still eating properly. \
 She had protected him, until now...
 
 But that was where it ended.
@@ -6474,7 +6472,7 @@ The time for her grumbling and standing still had come to an end.
 
 Mihaya-chan looked like she'd die of her worries, so I desperately gave her some tips... But, yeah, the jobber villain was responsible for about half of the cause, so it was my responsibility to treat anyway!
 
-I, as a Lifelong Honorary Beautiful GIrl (self-recognized), am a beautiful girl that doesn't just clean up after my own mistakes, but leaves the situation better than it was before!
+I, as a Lifelong Honorary Beautiful Girl (self-recognized), am a beautiful girl that doesn't just clean up after my own mistakes, but leaves the situation better than it was before!
 
 "As expected, yapping too much is not good. I'll take that into consideration moving forward."
 
@@ -6726,7 +6724,7 @@ Though, I gotta say, divers are looking surprisingly suited to contend with an e
 
 ...I see. Black tights. Yeah. That might lead me to another type of Mysterious Beautiful Girl.
 
-«■■■■»
+« ■■■■ »
 
 No, see, if we go with white ones, then it clashes with her image. Sorcière's still a girl who's shouldering the darkness of the world. We'd need to give her at least two separate "filling the holes in her heart" events for her to start wearing white tights.
 
@@ -6969,8 +6967,8 @@ I tie an exaggerated pose in with that, and she seems to let out a sigh of relie
 
 "...Haah, don't surprise me like that."
 
-The lack of energy seeing a costumed beautiful girl.
-Motions that lack spirit.
+The lack of energy seeing a costumed beautiful girl. \
+Motions that lack spirit. \
 And the way she jumped just now.
 
 I see, I see! You must also be on your first day here, right? And likely the same as Toa-chan, dragged along by the payout but being very bad with standing in front of people.
@@ -7013,7 +7011,7 @@ Seriously, calm down. And give me a minute to think.
 
 Just who *is* this assumed beautiful girl? Star-Reader Staff-kun, your thoughts?
 
-«■■?»
+« ■■? »
 
 Yeahhh, you wouldn't know either, would you. Her voice is pretty muffled, so I can't get a good grasp on who it might be. All we can know for sure is that she's a hardcore enthusiast who feels like playing the mascot is tricking all the kids that visit the amusement park.
 
@@ -7102,7 +7100,7 @@ What?
 Then who was the girl?
 Did I conjure up a hallucination from fatigue?
 
-«■■■■■■■»
+« ■■■■■■■ »
 
 Right, yeah! You saw her too! What the hell...
 
@@ -7220,8 +7218,8 @@ It was a question that pierced Rinka to her core, like this girl had seen right 
 
 "Salvation? Even after tricking everyone, for so long!? There's no path to salvation left for someone like me!"
 
-She had used Touraku for his kind nature.
-She had trambled on Mihaya's compassion.
+She had used Touraku for his kind nature. \
+She had trambled on Mihaya's compassion. \
 She had treated Lutra as nothing more than a tool.
 
 Rinka had betrayed all of them, when they had given her a warm place to be. They had given her something real, and she had made it fake again.
@@ -7285,10 +7283,10 @@ Rinka paused at the doorway, and looked back.
 
 "I forgot to ask for your name."
 
-That girl had given her a push forward when she couldn't take a single step.
+That girl had given her a push forward when she couldn't take a single step. \
 That girl had taken on a risk she couldn't understand just for this happenstance encounter.
 
-That girl, inside her own kigurumi, did not answer.
+That girl, inside her own kigurumi, did not answer. \
 That girl continued standing, just as she was. The words were understood though unspoken—that girl's duty here was now complete.
 
 "...Right. Sorry, yeah. Yeah. Okay, I'll go do my best!"
@@ -7363,7 +7361,7 @@ Does she really like the amusement park that much? Hmm, I mean, if it's just one
 
 Alright, and then we just full-speed book it out of the park afterwards. And if worst comes to worst, I can always Sorcière.
 
-«■■■■■»
+« ■■■■■ »
 
 Hey, quit getting fired up in there! I'm not pulling you out unless I have to.
 
@@ -7701,9 +7699,9 @@ My torso was skewered. There's no chance I can survive that wound, but I find my
 
 After all, there's still things I'll be leaving undone. When I do perish here, *either Mizuhi or Toa-chan will be chosen in my stead*.
 
-There I lay, complaining.
-There I lay, so many of me, brought to death's door.
-And all of me are swallowed up by the darkness.
+There I lay, complaining. \
+There I lay, so many of me, brought to death's door. \
+And all of me are swallowed up by the darkness. \
 And at the end of it all, I—
 
 ■
@@ -7720,8 +7718,8 @@ I rush over to her as she collapses. The shadows cast by the fire wriggle as if 
 
 There's no response. No, even worse, her breathing is weak.
 
-This is because I didn't turn her down.
-I should have told her I couldn't, and gotten us out of here.
+This is because I didn't turn her down. \
+I should have told her I couldn't, and gotten us out of here. \
 It's my fault now that she's like this.
 
 "..."
@@ -7766,11 +7764,11 @@ Currently, my actual options are limited. And thinking about it even just a litt
 
 No, the answer has already been calling to me.
 
-«■■■■■»
+« ■■■■■ »
 
 I hear a voice speak to me. Clear, unobstructed, strong. Tired of these circumstances, overflowing with delight.
 
-«■■■■■»
+« ■■■■■ »
 
 It is looking forward to our contract.
 
@@ -7785,13 +7783,13 @@ No, it *can*. Definitely.
 
 Isn't that right, Star-Reader Staff?
 
-«■■■»
+« ■■■ »
 
 Understood.
 
 Then, let's make that contract.
 
-«■■■?»
+« ■■■? »
 
 The voice becomes slightly baffled. Confused that I earnestly mean to make this contract.
 
@@ -7801,12 +7799,12 @@ But right now is different.
 
 Star-Reader Staff. As you will enter my life in a real sense going forward, let me teach you something.
 
-«?»
+« ? »
 
-*Beautiful girls alone must never be allowed to die.*
+*Beautiful girls alone must never be allowed to die.* \
 *It won't do for a beautiful girl's final moments to be anything less than joyful.*
 
-«???»
+« ??? »
 
 I give you all that I am. And to me, I ask that you give me the power to save every beautiful girl there is.
 
@@ -7814,20 +7812,20 @@ Give me all that you are, too.
 
 "Sorcière."
 
-I call out the name.
-The same way as always.
-And quietude descends anon.
+I call out the name. \
+The same way as always. \
+And quietude descends anon. \
 Sound disappears from our surroundings, as does color with it. The fire, Miroku-senpai, the kid, everything comes to an end.
 
 In a world beset by the gray beyond a lack of color, my eyes alight on a crimson casket. A decoration as red as that is obviously stands out in a world with only one other color at best.
 
 It's a deep red, iron thing.
 
-«Rejoice.»
+« Rejoice. »
 
 The casket opens itself. I experience the conviction that it will never close again.
 
-«Her Majesty's casket has here been accessed. Today is born a new Star-Reader.»
+« Her Majesty's casket has here been accessed. Today is born a new Star-Reader. »
 
 Within the casket sits a singular massive scythe. It quickens as if alive, and I pause there for just a moment.
 
@@ -7865,11 +7863,11 @@ Hell yeah!!! Add it to your calendar, everyone! Today's the day Miroku-senpai ca
 
 I get back on my feet. My hair slides along the ground as well with a light noise. This... Star-Reader Staff has done it again, I see.
 
-«My congratulations! Today marks the start of our partnership!»
+« My congratulations! Today marks the start of our partnership! »
 
 Oh, shut up. I can certainly hear you a lot better than before, though.
 
-«Now, now, what *shall* we do now? Ah, but you needn't reply. I already understand you. Thou and I art two and the same: thoughts are quite immediately transmitted.»
+« Now, now, what *shall* we do now? Ah, but you needn't reply. I already understand you. Thou and I art two and the same: thoughts are quite immediately transmitted. »
 
 A lively voice resounds inside my head.
 
@@ -7877,13 +7875,13 @@ Well, if you know what I want, then that's fine. I want to twist the bastard cre
 
 Yes! It's Mysterious Beautiful Girl Time!
 
-«Ah, but it's a crying shame, isn't it? Crossdress is beyond your means, right now, you see.»
+« Ah, but it's a crying shame, isn't it? Crossdress is beyond your means, right now, you see. »
 
 Hah?
 
 Alright, how do I get you to enter your cooldown period. You saved Miroku-senpai already, so the skill should have finished proccing, right?
 
-«That really is one of your worse qualities, I must say. ...Wait, no, that's my mistake. To be more accurate, there's no need for you currently to crossdress, you see.»
+« That really is one of your worse qualities, I must say. ...Wait, no, that's my mistake. To be more accurate, there's no need for you currently to crossdress, you see. »
 
 "Eh?"
 
@@ -7895,11 +7893,11 @@ As the circuit rises, it passes softly over my body. And as it rises, my uniform
 
 This...! An instant wardrobe change...!
 
-«No, you're getting hyped up at the wrong bits. Do you truly wish to be a beautiful girl?»
+« No, you're getting hyped up at the wrong bits. Do you truly wish to be a beautiful girl? »
 
 Do the stars shine at night? I spent the last moments of my life reciting a mantra to become one instead of making a farewell poem, even.
 
-«Then, be joyful. Place a hand to your breast.»
+« Then, be joyful. Place a hand to your breast. »
 
 Hand to chest... Like this?
 
@@ -7907,7 +7905,7 @@ My hand meets a squishy sensation.
 
 This...! This is...!
 
-«My congratulations, Kei. In this moment, you are a beautiful girl yourself.»
+« My congratulations, Kei. In this moment, you are a beautiful girl yourself. »
 
 "..."
 
@@ -7942,15 +7940,15 @@ I clasp a candy in the kid's hand, and call forth a magic shield. I also strengt
 
 "YEAHHHHH!!! Let's *gooo*!"
 
-«The phrasing change...»
+« The phrasing change... »
 
 "Let's be off, Star-Reader Staff. The world calls to us."
 
-«I've wondered this before, but is this really the worldview you live under?»
+« I've wondered this before, but is this really the worldview you live under? »
 
 I'll give you a long, thorough lesson on things later ♥
 
-«Hieeh...»
+« Hieeh... »
 
 As I give Star-Reader Staff a fright, I ascend to a nearby roof and begin moving in. My target location is where the beast lurks. My goal is the zone of the plot's current operations.
 
@@ -8007,60 +8005,60 @@ When Rinka next opened her eyes, she was already within the inferno. Flames blaz
 
 There was a large amount of death, there.
 
-«This...»
+« This... »
 
 Rinka attempted to move her body.
 
 What moved instead was the massive feeler that filled her vision. It swung as easy as lifting a finger, and sent various buildings across the amusement park toppling sideways.
 
-«Ah, no!»
+« Ah, no! »
 
 It finally stopped after sweeping away a number of the corpses around.
 
 She finally realized that this was Twilit Silver's Ouroboros, its full form.
 She finally realized that she had become Ouroboros herself.
 
-«I, I remember.»
+« I, I remember. »
 
 She remembered her loss.
 
 The determination of one girl is a trifling thing, laughed her memories of defeat at her in mockery.
 
-«I lost, to the Professor...and then...»
+« I lost, to the Professor...and then... »
 
 With the encouragement from that mysterious girl, Rinka had returned to the facility. She had found her determination to kill, even if only trading her life.
 
 Yet neither of those outcomes had come to pass. Her professor had already considered her betrayal in their calculations.
 
-«Right, what about Touraku and the others!?»
+« Right, what about Touraku and the others!? »
 
 Even just making a slight movement, the tendrils destroyed their surroundings again. Yet she had no effort to spare on that right now.
 
-«If the Professor wasn't lying to me, then those three should be heading for me... There they are.»
+« If the Professor wasn't lying to me, then those three should be heading for me... There they are. »
 
 Rinka pivoted the monstrous eye and quickly caught sight of Touraku and Mihaya. So much smaller than herself at this moment, and holding their respective weapons as they stared back at her.
 
 Their gazes held none of the warmth that they offered a companion.
 
-«...Yeah. After all, I'm really a monster now.»
+« ...Yeah. After all, I'm really a monster now. »
 
 Because she was a person of the organization, she understood exactly what she looked like from the outside. She had been reduced to a being that absorbs human bodies into a dungeon.
 
 Yet still, she faced herself forward.
 
-«I, what I want to do...!»
+« I, what I want to do...! »
 
 Ouroboros was another plan in response to the impending calamities, separate from the Demons. She knew that there was a degree of influence one could have over this body of a deus ex machina.
 
 Thus, Rinka did not waver.
 
-«If I hold it back here, I can end this with just one final casualty!»
+« If I hold it back here, I can end this with just one final casualty! »
 
 She'd have Touraku and his companions kill her. That was the answer she had found for what she wanted to do, a devotion overflowing with heartbreak. This was the most optimal solution she had for this situation.
 
 ■
 
-«—Touraku, it's movements have dulled.»
+« —Touraku, it's movements have dulled. »
 
 Lutra spoke to Touraku from her form as a weapon. And indeed, just as she said, Ouroboros had become more sluggish compared to just a bit earlier. The tendrils still poked out from various shadows, but the largest of them all and their direct source, Ouroboros, had ceased its attacks after one large swipe.
 
@@ -8092,7 +8090,7 @@ However, would they be able to realize that they had found her, or what remained
 
 "Mhm. Lutra, we're up."
 
-«Got it.»
+« Got it. »
 
 In time with another round of attacks by the tendrils, Touraku and Mihaya kicked off. They avoided most of the attacks, and drove their weapons through the rest as they moved forward. Lutra's ability to seal off regeneration made her even more effective against the tendrils than normal attacks were.
 
@@ -8108,7 +8106,7 @@ But he did not have the time to sit and ponder what that might be from. He knew 
 
 "...Is now our best chance, then?"
 
-«Touraku, I'm good whenever.»
+« Touraku, I'm good whenever. »
 
 Lutra bolstered her contractor's power as a response. Hers was a headwater of mana, and a power just shy of materializing. Its essence was the ability to interfere with and sever any sort of concept.
 
@@ -8136,11 +8134,11 @@ The strike would not pause for even a second on its way to the main body.
 
 And Ouroboros, looking at that...
 
-«Haha. That's Touraku for you.»
+« Haha. That's Touraku for you. »
 
 Laughing innocently, it opened up its tendrils to accept the strike. With full understanding that this would sever its existence from the world, and with no opposition.
 
-«Thank you, for giving me a place to belong.»
+« Thank you, for giving me a place to belong. »
 
 As Rinka had already abandoned a human form, human speech was similarly impossible now. In its place, a piercing shriek rose and resounded throughout the park.
 
@@ -8174,11 +8172,11 @@ Mihaya spoke her name from beside him, and he had the thought that he had indeed
 
 The chalk-colored tachi in his hands trembled.
 
-«Touraku, no more. Let's run.»
+« Touraku, no more. Let's run. »
 
 "Lutra?"
 
-«We can't fight that. It's stronger than any of the data I have inside me. That... Our oldest sister is our natural predator.»
+« We can't fight that. It's stronger than any of the data I have inside me. That... Our oldest sister is our natural predator. »
 
 "Oldest sister...?"
 
@@ -8198,8 +8196,8 @@ The atmospheric mana had been greatly disturbed, throwing the flow of air entire
 
 Interference with nature itself through just her mana. The only one who was capable of such, the star of bad omen herself, shone above Touraku and the others.
 
-Her name was Sorcière.
-Her rank was S, the eight among those reigning in power over the academy-city.
+Her name was Sorcière. \
+Her rank was S, the eight among those reigning in power over the academy-city. \
 Her ability was uncontested and unilateral manipulation of all things.
 
 "The stars have always been closely observing you."
@@ -8222,7 +8220,7 @@ That which had rampaged so much until now, here made powerless by the actions of
 
 "...Lutra, how many of our swings would it take to defeat her?"
 
-«We can't. I've already calculated 10,000 different attacks. I can give you 5 good attacks, but no more than that.»
+« We can't. I've already calculated 10,000 different attacks. I can give you 5 good attacks, but no more than that. »
 
 "I see."
 
@@ -8340,7 +8338,7 @@ Mihaya and Touraku exchanged a glance, nodded, and then moved to stand by her.
 
 "Use Lutra, and sever Rinka from Ouroboros."
 
-«With a direct strike to the exposed core, I think we can.»
+« With a direct strike to the exposed core, I think we can. »
 
 Touraku and Lutra's target was set. This would not be a long-ranged attack like they had used before, but a direct, point-blank strike after evasion. The difficulty of it was fundamentally different. With Touraku's own fighting experience, this was likely impossible.
 
@@ -8370,11 +8368,11 @@ The curtain rose on the strangest of casts.
 
 Yeahh, the chains crumbled at just the right time!
 
-«It would have been perfectly fine to *not* crumble them, need it be said...»
+« It would have been perfectly fine to *not* crumble them, need it be said... »
 
 Silence from the peanut gallery! Tell me, just which world would have one of the bosses quietly fall while still wrapped up in chains? Doing it this way is staying faithful to the ancestral Beautiful Girl Style!
 
-«I wonder if I can bring this contractor in for an exchange.»
+« I wonder if I can bring this contractor in for an exchange. »
 
 Leaving Star-Reader Staff to regret something for the moment, I run forward. I alone play at double speed within the shot, the large scythe slicing through tendrils as I take point.
 
@@ -8382,7 +8380,7 @@ Look, look! A beautiful girl is gracefully spinning her scythe!
 
 How cute, isn't she?
 
-«Cute...? Have you ever heard of the word 'objective'?»
+« Cute...? Have you ever heard of the word 'objective'? »
 
 Are you going to be hung up on my thought patterns forever?
 
@@ -8390,21 +8388,21 @@ Are you going to be hung up on my thought patterns forever?
 
 It'd be terrible if the main party got injured here. I'll protect them, me as this beautiful girl... No, my beautiful girl self will![^45]
 
-«Did I get ahead of myself, changing your sex so quickly? ...But no, doing that has increased your mana capacity explosively.»
+« Did I get ahead of myself, changing your sex so quickly? ...But no, doing that has increased your mana capacity explosively. »
 
 Shush! Right now, I'm fighting a beautiful girl, *as* a beautiful girl, with the protagonist's party! Can you even call yourself a beautiful girl's partner if you can't even understand that!?
 
-«Beautiful girl *this*, beautiful girl *that*, pipe down yourself! Besides, what was with the things you've been saying, all this about the stars, and some organization or other. I know absolutely nothing about these.»
+« Beautiful girl *this*, beautiful girl *that*, pipe down yourself! Besides, what was with the things you've been saying, all this about the stars, and some organization or other. I know absolutely nothing about these. »
 
 As if I'd have any answers for any of that!!
 
-«Ehhhhh...»
+« Ehhhhh... »
 
 I was just using stuff that sounded like it might be something to be respected as a beautiful girl! And then I want to make out with another beautiful girl! If at all possible, we should be locked in a grapple from morning until night.
 
 Thus! To that end, we save Rinka-chan. No matter what else, we save her. Even though it ruins the main plot completely!!
 
-«And there you go again, another non-sequitur...»
+« And there you go again, another non-sequitur... »
 
 Agiri Rinka is a character who would be the first named character to die in the span of the story. She appears from the very start, and is a pretty upbeat and popular character, but according to the direction of the work as a whole, she gets killed off. From there, since one regularly-appearing character had just been offed like that, me and all the other readers lived in fear for when a new volume would drop.
 
@@ -8416,8 +8414,8 @@ From that standpoint, I ought to have left her to die like normal.
 
 However.
 
-Since I became a beautiful girl...
-Because anything a beautiful girl does is forgivable...
+Since I became a beautiful girl... \
+Because anything a beautiful girl does is forgivable... \
 I'm going to save the beautiful girl that would have died according to the original flow of things!
 
 "Touraku, the way is open. The rest, rests on your shoulders."
@@ -8432,11 +8430,11 @@ Gosh, I'm nervous again.
 
 He can really get this done with just Lutra, right?
 
-«They'll be just fine. Lutra can sever whatever it is she wishes. Besides for the two of us, that is.»
+« They'll be just fine. Lutra can sever whatever it is she wishes. Besides for the two of us, that is. »
 
 As expected of the Mysterious Beautiful Girl! We're fine even against Lutra! Yaaay!
 
-«Yaaay!»
+« Yaaay! »
 
 If Star-Reader Staff says so, it must be fine!
 
@@ -8446,11 +8444,11 @@ Truth be told, I do quite adore the face of despair you made in the original wor
 
 We can play that out with Sorcière, alright? ♥
 
-«Hey, what are you dragging me into this time?»
+« Hey, what are you dragging me into this time? »
 
 Yaaay!
 
-«Oi!»
+« Oi! »
 
 Setting aside the Star-Reader Staff who has gotten loud again, I float into the air.
 
@@ -8458,17 +8456,17 @@ It's a bit late to comment on this, but yes, I can float.
 
 ...Hm, that's not actually safe to do unless I get underwear that's fine for someone to see from below, is it.
 
-«That wasn't included in the crossdressing set, so I left it as it was. It took you quite a while to think about that, didn't it?»
+« That wasn't included in the crossdressing set, so I left it as it was. It took you quite a while to think about that, didn't it? »
 
 Yes... Sorry about that. My self-awareness as a beautiful girl still has a long way to go...
 
-«It truly is only in times like these you get genuinely apologetic.»
+« It truly is only in times like these you get genuinely apologetic. »
 
 I let the thoughts of what sort of panties to fit with Sorcière run in parallel with moving to prepare for my next Mysterious Beautiful Girl Move.
 
 Let's get loud with it!
 
-«Ah, you really mean to fire that thing off at full force, do you? Well, that's fine with me.»
+« Ah, you really mean to fire that thing off at full force, do you? Well, that's fine with me. »
 
 [^45]: Here, Kei switches to using 私, but just once for this correction.
 
@@ -8477,7 +8475,7 @@ Let's get loud with it!
 
 The moment I finally realize that is one of the last I'll have. It's only in the throes of my death that I'm finally able to face my own feelings.
 
-«This, this was for the best.»
+« This, this was for the best. »
 
 A slash from Gatō Touraku sidles through the air toward me.
 
@@ -8485,7 +8483,7 @@ I have no reason to turn this down.
 
 That slash will set me free from this unsightly form, and so, there is nothing for me to fear from it.
 
-«A~ah. I hope in my next life, I can just be a normal girl.»
+« A~ah. I hope in my next life, I can just be a normal girl. »
 
 My ideal is just to have an ordinary life.
 To do homework with Touraku.
@@ -8510,7 +8508,7 @@ Its voice denies both my determination and prayer.
 
 In the sky above the amusement park, a massive magic circuit unfolds. In the center, as it expands, ready to slice into time itself, blue-silver hair steals my attention.
 
-«That...»
+« That... »
 
 The S rank diver designated for special caution by Twilit Silver, Sorcière. Ever since her first appearance, her allegiance and goals had been shrouded in mystery, just making an appearance like a bolt from the blue.
 
@@ -8518,17 +8516,17 @@ That same girl is who I notice in front of me.
 
 Though, I guess, to be precise, it's the mana that she's honed that I'm perceiving.
 
-«Could it be... Was the girl I met in the other kigurumi, her?»
+« Could it be... Was the girl I met in the other kigurumi, her? »
 
 This eye of mine was given an aberrant level of observation ability by Twilit Silver. It is because of that that I'm able to parse things this quickly, that this girl in front of me is the same one that gave me a push forward earlier.
 
 What I can't figure out is *why*.
 
-What caused her to appear now?
-I'm doing exactly what it is that I want to do.
+What caused her to appear now? \
+I'm doing exactly what it is that I want to do. \
 I'm just dying for the sake of my friends.
 
-«Don't get in my way. This is what I want to do.»
+« Don't get in my way. This is what I want to do. »
 
 I reach out tendrils toward Sorcière. A thousand and more arms, stretching to the star to try and devour its brilliance whole.
 
@@ -8540,7 +8538,7 @@ Sorcière leaves me like that, and fires off a Convergence Bombardment toward To
 
 Nobody asked her to.
 
-«Are you trying to keep them from killing me?»
+« Are you trying to keep them from killing me? »
 
 For a while, Sorcière talks to the others at a distance I cannot hear them. All I can do is watch them as they speak, back and forth.
 
@@ -8550,7 +8548,7 @@ And I understand why they do.
 
 Thanks to whatever she did, Touraku has realized that this monster and I are one and the same.
 
-«You got it. You figured it out. So, you know what you need to do next, right?»
+« You got it. You figured it out. So, you know what you need to do next, right? »
 
 Perhaps it was just the passing of time, but Sorcière's chains finally weaken, and they quickly crumble and fall away.
 
@@ -8570,7 +8568,7 @@ And yet.
 
 Why do Touraku's eyes gleam with hope?
 
-«What exactly are you trying to do?»
+« What exactly are you trying to do? »
 
 He dodges the tendrils, and step after step he moves closer to me.
 
@@ -8578,7 +8576,7 @@ That, out of everything, is an unfit action for this scenario.
 
 The best way to deal with Ouroboros is a close-range full bombardment to achieve total annihilation. Usually, that would make a Convergence Bombardment ideal. But Lutra's slashes ought to be plenty. There should be no need to get close to me.
 
-«Stay away!»
+« Stay away! »
 
 Death is only a risk for them if they're close to me. These tendrils move as they see fit, and aim for lethal strikes; put simply, it's a nest of deadly weapons.
 
@@ -8588,17 +8586,17 @@ But they keep moving forward, dodging, intercepting, one after another.
 
 It strikes me just why this is the case.
 
-«Sorcière—!!»
+« Sorcière—!! »
 
 She must have put something into their heads. That's why they're risking their lives right now.
 
 Maybe my anger is misplaced once again, but I have no plans to stifle it this time.
 
-The Hero defeats The Monster, and the story ends.
-That's how it always goes.
+The Hero defeats The Monster, and the story ends. \
+That's how it always goes. \
 That's what I wished for.
 
-«This is all I can do! I'm powerless! Why can't you understand that!?»
+« This is all I can do! I'm powerless! Why can't you understand that!? »
 
 Sorcière dances past my screams and attacks, laughing it all off as her scythe whirls through the air and the tendrils. And, insult to injury, she remains free enough to look out for any danger to Mihaya and Touraku.
 
@@ -8618,9 +8616,9 @@ But all I can manage is to ruffle her bangs, ever so slightly.
 
 As that realization falls, so does another: a path has been carved open, direct to me. And a third: even my rampaging could not break me free from her predictions.
 
-«I've found what I want, after so long... Don't stop me now.»
+« I've found what I want, after so long... Don't stop me now. »
 
-My wish is to die.
+My wish is to die. \
 Sorcière has to know that by now.
 
 She reaches out her hand because she does.
@@ -8643,14 +8641,14 @@ He slips past the tendrils again, and jumps above some, using them as a springbo
 
 Seeing him like that, here, the emotions I'd locked away spill out again. The ones I'd kept hidden deep inside myself, knowing that I'd regret them if I ever spoke them out loud.
 
-«...Touraku, Touraku!»
+« ...Touraku, Touraku! »
 
-I call for him.
-I want him to find me.
-Here I am.
+I call for him. \
+I want him to find me. \
+Here I am. \
 Look, look at me.
 
-«Save me, Touraku. Get me out of here!»
+« Save me, Touraku. Get me out of here! »
 
 "I'm getting you out of there right now."
 
@@ -8666,7 +8664,7 @@ The star falls upon me, and—
 
 "Do you think we can be friends again?"
 
-«...Mm. Yeah. Nice to meet you, Touraku.»
+« ...Mm. Yeah. Nice to meet you, Touraku. »
 
 —I make a friend.
 
@@ -8710,7 +8708,7 @@ Touraku noticed suddenly that Lutra had still not returned to her human appearan
 
 "Lutra, what's up?"
 
-«The fight hasn't ended yet. That was just the prelude.»
+« The fight hasn't ended yet. That was just the prelude. »
 
 The sword shuddered in his hands. Her dread and fighting instinct slowly flowed over into Touraku.
 
@@ -8730,7 +8728,7 @@ Just as when she had first appeared, a magic circuit flared its light as it cove
 
 "What is she trying to do?"
 
-«Touraku, she's converting matter from her surroundings into mana.»
+« Touraku, she's converting matter from her surroundings into mana. »
 
 Touraku finally noticed, seeing it pointed out. Pale blue particles rising from throughout the area. Trash, fire, the tendrils, all of it seemed to be melting away back into the world.
 
@@ -8742,7 +8740,7 @@ Suddenly, he remembered what it is that she was famous for. What she had debuted
 
 "It can't be, a Convergence Bombardment...!?"
 
-«Touraku, 5 strikes. That will stop her.»
+« Touraku, 5 strikes. That will stop her. »
 
 Mihaya also called out to him, having noticed the oddity happening to the area.
 
@@ -8750,19 +8748,19 @@ Mihaya also called out to him, having noticed the oddity happening to the area.
 
 "It's Sorcière. She's gathering mana by converting matter around here, she's going to fire off a CB!"
 
-«Touraku, let's go. We can't give over the first move.»
+« Touraku, let's go. We can't give over the first move. »
 
 "Got it."
 
 Hey, don't tell me, you're going to go *fight* her!? You can't!"
 
-«Touraku, hurry.»
+« Touraku, hurry. »
 
 The push and pull of Mihaya and Lutra spawned enough hesitation in Touraku to bind him for a moment. Because of that momentary pause, he was then bound down physically, as silver chains sprouted from a magic circuit beneath him, tying him and the sword he held.
 
 "Kgh! What!?"
 
-«We were too slow. I'll have to signal another DemonGear now to—»
+« We were too slow. I'll have to signal another DemonGear now to— »
 
 Touraku looked to the sky again in defiance, as Lutra seemed to half have given up already. Sorcière was still there, as ever.
 
@@ -8820,7 +8818,7 @@ Standing just outside the light, Rinka truly understood just what it was that he
 
 "Lutra, how are you holding up?"
 
-«The aftershocks are nothing I can't handle. But if she points that at me, it's over. Only Eina or Torim would be able to make this a shootout.»
+« The aftershocks are nothing I can't handle. But if she points that at me, it's over. Only Eina or Torim would be able to make this a shootout. »
 
 Lutra dissected their situation bluntly.
 
@@ -8886,15 +8884,15 @@ Like, out of the S ranks in this academy-city. The one that's being talked about
 
 Whoooo might she be?
 
-«Quit that.»
+« Quit that. »
 
 Yes, that's, meeeee! It's me, Sorcière!!
 
-«Do you know *how* to be quiet?»
+« Do you know *how* to be quiet? »
 
 Even if I do shut up, it turns me into the cool archetype of beautiful girl!
 
-«What the hell, there's no winning!?»
+« What the hell, there's no winning!? »
 
 Precisely. Right now, I am invincible. Any combination of bosses from the original story could come at me, and I'd *still* win!
 
@@ -8910,11 +8908,11 @@ I would rather set up the sequence where they all go, "You, you were a girl this
 
 After all, I'm a beautiful girl.
 
-«It is 100% fine to just explain it to them, you have my word. And even before that, isn't it *not necessary yet* to have that sort of worry?»
+« It is 100% fine to just explain it to them, you have my word. And even before that, isn't it *not necessary yet* to have that sort of worry? »
 
 There's no way that's the case. Are you actually smart enough to run calculations?
 
-«...Tch.»
+« ...Tch. »
 
 So even things like you still click your tongues... And really seriously, at that.
 
@@ -8928,11 +8926,11 @@ From my perspective, the biggest question is how to reveal that I'm a girl. The 
 
 ...Have I become such a high level of beautiful girl that my mere existence fans the flames of war!?
 
-«It'd simply be because you're that strong, no? And on that note, *I* am the one who is strong. You're just getting aroused on your own again.»
+« It'd simply be because you're that strong, no? And on that note, *I* am the one who is strong. You're just getting aroused on your own again. »
 
 So... Me and Star-Reader Staff, two souls in one body?
 
-«You're not listening one bit, are you.»
+« You're not listening one bit, are you. »
 
 I am, I am.
 
@@ -8940,7 +8938,7 @@ To be serious for a moment, no matter how I think about it, you're a source of m
 
 Let's just crossdress, but in the other direction for now.
 
-«Ahh, yes, yes. I'll return your uniform to you.»
+« Ahh, yes, yes. I'll return your uniform to you. »
 
 With my uniform returning, I become Narō Kei once again.
 
@@ -8966,15 +8964,15 @@ She's still unconscious, by the way.
 
 Is she really okay?
 
-«She's fine, totally fine. With my power injected like it was, there's no chance of dying on these grounds.»
+« She's fine, totally fine. With my power injected like it was, there's no chance of dying on these grounds. »
 
 Eh, something sounds strange about that.
 
-«No, it's my power. There's nothing odd about at all.»
+« No, it's my power. There's nothing odd about at all. »
 
 I'm telling you there is! Let's not do that anymore, I don't want to magically restructure Miroku-senpai like that. She's a nice and tidy person as is.
 
-«All it's doing is helping her circulation, removing her stiff neck and shoulders, and relieving lower back pain, though...»
+« All it's doing is helping her circulation, removing her stiff neck and shoulders, and relieving lower back pain, though... »
 
 What are you, a hot spring?
 
@@ -9042,7 +9040,7 @@ In such a case, the right falls instead to me, as a beautiful girl myself, to ca
 
 With the two of us together, we're probably already emitting a crazy scary beautiful girl pair field.
 
-«You decidedly are not. Also—»
+« You decidedly are not. Also— »
 
 I've decidedly said that we are!
 
@@ -9056,7 +9054,7 @@ That's odd. I could swear I just heard a voice from behind me. A protagonistic o
 
 I turn around, and catch sight of none other than the protagonist party themselves.
 
-«Oh, snap. Time to disappear~!»
+« Oh, snap. Time to disappear~! »
 
 With those final words, Sorcière's presence vanishes. Good work see you next time and all that.
 
@@ -9112,7 +9110,7 @@ With my mind on Rinka-chan, I don't even notice Mihaya-chan approaching me until
 
 And I realize something.
 
-I'm not wearing a bra! Uwaah, what do I do!? This is bad, this is bad!
+I'm not wearing a bra! Uwaah, what do I do!? This is bad, this is bad! \
 No, more importantly, they'll find out I'm a beautiful girl! Why did it have to happen this wayyy!
 
 "Oi, hey, you, what, don't just grab me like "Shut up!" Eeehhh..."
@@ -9135,11 +9133,11 @@ Why??? She didn't get surprised by my Beautiful Girl Body???
 
 A small voice mentally whispers to me.
 
-«...That was a limited-time transformation...Partner, you're male again...»
+« ...That was a limited-time transformation...Partner, you're male again... »
 
 Fueh?
 
-«I tried to tell you several times...You were too busy to pay me any heed...My deepest apologies for getting your hopes up. For now, we may speak again once Lutra is not right next to us.»
+« I tried to tell you several times...You were too busy to pay me any heed...My deepest apologies for getting your hopes up. For now, we may speak again once Lutra is not right next to us. »
 
 Once again, leaving just those words, Star-Reader Staff's presence vanishes.
 
