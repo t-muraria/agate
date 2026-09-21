@@ -304,15 +304,15 @@ He seemed startled by his own words, and quickly closed his mouth firmly again. 
 
 Miroku's answer was simple, and her mind anything but. It was the specific words that Kei had used that caught her attention so much: *I'm running out of time.*
 
-(...instructor said the exact same thing shortly before her death. It couldn't be...)
+(...Instructor said the exact same thing shortly before her death. It couldn't be...)
 
 She decided to pose a single question to him.
 
- "Are you perchance familiar with an instructor by the name of Sakuraba Rakka?"
+ "Are you perchance familiar with an instructor by the name of Sakuraniwa Rakka?"
 
 "!? ...Miroku-chan."
 
-Out of all the names Miroku could have asked about, Sakuraba Rakka was by far the most known and respected one the academy held on to. The woman herself, instructor to both Miroku and Mizuhi, had unfortunately already left this world. Kei's eyes widened when he heard it, and in them shimmered an ardor like the last moments of a candle, vibrant as it reaches for one last moment of greatness before burning out completely.
+Out of all the names Miroku could have asked about, Sakuraniwa Rakka was by far the most known and respected one the academy held on to. The woman herself, instructor to both Miroku and Mizuhi, had unfortunately already left this world. Kei's eyes widened when he heard it, and in them shimmered an ardor like the last moments of a candle, vibrant as it reaches for one last moment of greatness before burning out completely.
 
 "...Yes. I do know that name."
 
@@ -354,7 +354,7 @@ It was so stupidly easy! What do you mean I passed the interview like that!!!
 
 Obviously, there'd have been all sorts of questions if I put down my reason for transferring as the truth ("I want to become a beautiful girl"), so I couched that behind things like "cause" and "mission". It seems like they didn't catch on that those don't really exist. They *did* suddenly throw out a character name from the original series, which caught me off guard, but I was able to give an acceptable answer.
 
-Incidentally, "Sakuraba Rakka" is a character that appears in *Mirror-Edge Lutra*'s mobile spinoff title. I haven't played that game myself, so I don't really know anything about her first-hand, but I've seen her called such incredibly important-sounding things as "Immortality's Sourcefont", "Agent of Mythsea", and "Guardian of the Tree of Stars", so she seems to be some sort of cornerstone for the plot. I wonder if she's also actually famous in this world, too... What if she also got her start at this very Fectom?
+Incidentally, "Sakuraniwa Rakka" is a character that appears in *Mirror-Edge Lutra*'s mobile spinoff title. I haven't played that game myself, so I don't really know anything about her first-hand, but I've seen her called such incredibly important-sounding things as "Immortality's Sourcefont", "Agent of Mythsea", and "Guardian of the Tree of Stars", so she seems to be some sort of cornerstone for the plot. I wonder if she's also actually famous in this world, too... What if she also got her start at this very Fectom?
 
 ...Hahaha. There's no way, right?
 
@@ -1432,7 +1432,7 @@ During the conversation, Narou Kei had muttered *"It's way too soon for the worl
 
 Miroku gives a very quick reply.
 
-"Sakuraba Rakka."
+"Sakuraniwa Rakka."
 
 "Wh, Rakka-chan? Why's her name coming up..."
 
@@ -1462,7 +1462,7 @@ And with that, she tosses the cords down and walks out. Toa spends a moment look
 
 "Don't worry, I won't leave you. We should all go together... This time, for sure."
 
-Miroku makes a mental declaration. She will make sure this boy, who bears the inherited will of Sakuraba Rakka, will not face the same tragedy she did.
+Miroku makes a mental declaration. She will make sure this boy, who bears the inherited will of Sakuraniwa Rakka, will not face the same tragedy she did.
 
 ■
 
@@ -2671,9 +2671,9 @@ A dumbfounded voice spills from Mizuhi-senpai's mouth.
 
 I see. This must be the "Instructor" person she mentioned before.
 
-...Hm? Wait, but isn't this Sakuraba Rakka?
+...Hm? Wait, but isn't this Sakuraniwa Rakka?
 
-"Instructor" == "Sakuraba Rakka", then? What's going on here? Mizuhi-senpai aside for a moment, I can feel my own head filling up with question marks. However, that also aside, I raise my dagger again and bring it around for another go, as it has continued to approach Mizuhi-senpai.
+"Instructor" == "Sakuraniwa Rakka", then? What's going on here? Mizuhi-senpai aside for a moment, I can feel my own head filling up with question marks. However, that also aside, I raise my dagger again and bring it around for another go, as it has continued to approach Mizuhi-senpai.
 
 It's a stab from its blind spot, to the left side of the face. It stops it, so gently, like you'd clasp a child's hand to stop a tantrum.
 
@@ -2703,7 +2703,7 @@ This ought to just be something that has taken the shape of the instructor. This
 
 But right now, as I stare at it—no, as I stare at *her*, I can only see her as one thing.
 
-"Sakuraba Rakka, in the flesh...!?"
+"Sakuraniwa Rakka, in the flesh...!?"
 
 "Ohh, I see the conversation will go quite smoothly with the new face. So, why don't you die for me now?"
 
@@ -2713,7 +2713,7 @@ Faster than a blink, the pike is thrust at my face. Teleportation? Attack Vector
 
 I can't see any indication that she used *any* type of ability. This is purely her physical prowess, putting it closer to a type of martial art.
 
-I twist my body, dodging the attack. A beat later, more bullets fly in at Sakuraba Rakka.
+I twist my body, dodging the attack. A beat later, more bullets fly in at Sakuraniwa Rakka.
 
 "Oh, that's quite the danger."
 
@@ -2750,10 +2750,10 @@ I *don't* know... that's scary...
 
 [^26]: It's tempting to term this one (攻撃過程の省略) as "Animation Cancelling", but this is still a reality setting rather than digitized. It's possible this could be simplified down to just "Vector Omission", but the wording implies this is only for combat actions.
 
-[^27]: A minor elaboration on honorifics. In most cases, I'm translating them as-spoken, meaning they remain as -san and -chan and so forth. 先生 is an interesting position, and I've made the decision to render her name as Sakuraba (Rakka)-sensei when the name is attached, and some variant of (our/the) instructor when there is no name next to it.
+[^27]: A minor elaboration on honorifics. In most cases, I'm translating them as-spoken, meaning they remain as -san and -chan and so forth. 先生 is an interesting position, and I've made the decision to render her name as Sakuraniwa (Rakka)-sensei when the name is attached, and some variant of (our/the) instructor when there is no name next to it.
 
 ## 14. Whenever a Beautiful Girl enters play, she may flip the table.
-This is a bit abrupt, but let's review all the information we have about Sakuraba Rakka.
+This is a bit abrupt, but let's review all the information we have about Sakuraniwa Rakka.
 - She appears in story content original to the mobile game spin-off of *Mirror-Edge Lutra*.
 
 ...
@@ -2788,13 +2788,13 @@ Bullets fire with the rebuttal, to cut her off.
 
 "Woah there."
 
-And with the air that she's still just playing around, Sakuraba Rakka steps out of their way.
+And with the air that she's still just playing around, Sakuraniwa Rakka steps out of their way.
 
 At that same moment, I grasp my dagger back from the ceiling, and in that same motion, I bring it and myself down at her.
 
 A "combination attack" improvised off of the momentary stiffening the body performs after dodging. 
 
-It was perfect, an exact alignment of circumstance, a syzygy of Sakuraba Rakka's downfall.
+It was perfect, an exact alignment of circumstance, a syzygy of Sakuraniwa Rakka's downfall.
 
 And yet.
 
@@ -2824,7 +2824,7 @@ Cracking her smile a bit wider for a moment, she kicks away the pistol that had 
 
 Because she understands Mizuhi-senpai, or knows her, whichever is going on here, she's not just read her like a book, she's read her like a book *she wrote herself*. That aspect makes her even nastier than Rokuhara-san was to deal with. And if that wasn't enough, she is legitimately out to kill. The dungeon's boss really only exists here as that state of bloodlust, with the *how* of everything else given over to the individual's skills and personality.
 
-Also, in any other circumstance, Mizuhi-senpai would not have chosen to fight her. That's something I picked up on from her expression the moment our opponent took on the shape of Sakuraba Rakka.
+Also, in any other circumstance, Mizuhi-senpai would not have chosen to fight her. That's something I picked up on from her expression the moment our opponent took on the shape of Sakuraniwa Rakka.
 
 "Come now, Mizuhi, don't lose all your braincells on me. I *will* stab you, you know?"
 
@@ -2832,7 +2832,7 @@ Also, in any other circumstance, Mizuhi-senpai would not have chosen to fight he
 
 Mizuhi-senpai desperately throws herself out of the way again.
 
-That moveset does indeed seem to be the exact same as Sakuraba Rakka's. While Miuzhi-senpai isn't landing any good hits, she at least also isn't taking any major injuries herself.
+That moveset does indeed seem to be the exact same as Sakuraniwa Rakka's. While Miuzhi-senpai isn't landing any good hits, she at least also isn't taking any major injuries herself.
 
 And yet, if this drags on, she's still going to lose. A human with physical limits will always be at a disadvantage against a construct that's merely taking on a human shape.
 
@@ -2850,7 +2850,7 @@ Now why do I feel like that just pissed you off even more.
 
 Anyway, no time to worry about that!
 
-I peel my body off the wall and stand up. Then, I make another rush at Sakuraba Rakka.
+I peel my body off the wall and stand up. Then, I make another rush at Sakuraniwa Rakka.
 
 "Uoooooooooh!!!"
 
@@ -2929,7 +2929,7 @@ She still holds one pistol in her grasp of her pair, using it to try and keep he
 
 As it should be.
 
-Next, she quickly closes the distance between her and Sakuraba Rakka, disregarding her ranged advantage and firing in close-quarters instead. The other woman simply tilts her head to dodge what she ought to have been unable to see coming.
+Next, she quickly closes the distance between her and Sakuraniwa Rakka, disregarding her ranged advantage and firing in close-quarters instead. The other woman simply tilts her head to dodge what she ought to have been unable to see coming.
 
 As it should be.
 
@@ -2937,11 +2937,11 @@ As it should be.
 
 The bullet that had just flown past her blossoms into a large orb of flame. An explosion of that size is *guaranteed* to catch a person off guard, from behind.
 
-However, Sakuraba Rakka flourishes her pike around without looking at it, dispersing the flame.
+However, Sakuraniwa Rakka flourishes her pike around without looking at it, dispersing the flame.
 
 This, too, is as it should be.
 
-It's the normal course of events for Mizuhi to be unable to see a path to victory against Sakuraba Rakka.
+It's the normal course of events for Mizuhi to be unable to see a path to victory against Sakuraniwa Rakka.
 
 "Could it be that you had forgotten what my ability was?"
 
@@ -2967,7 +2967,7 @@ It's a smile that glows like the sun. It's a smile that should never be present 
 
 "Tch."
 
-Sakuraba Rakka kicks off the floor, the impact ringing behind her. No, rather, she simply steps forward. One step, at maximum speed. The pike rides that momentum, stabbing forward, its destination firmly set at the head of Terugami Mizuhi.
+Sakuraniwa Rakka kicks off the floor, the impact ringing behind her. No, rather, she simply steps forward. One step, at maximum speed. The pike rides that momentum, stabbing forward, its destination firmly set at the head of Terugami Mizuhi.
 
 *Evading won't get me out of the way. Counterattacking...is still impossible.*
 
@@ -2997,7 +2997,7 @@ In such a, such a, such a... Such a thing.
 
 Her will to fight has not yet left her.
 
-She immediately turns the muzzle of her remaining gun onto herself. She can pierce herself with a bullet faster than the spear can arrive, and together with that, place an explosion that will engulf even Sakuraba Rakka as her attack arrives.
+She immediately turns the muzzle of her remaining gun onto herself. She can pierce herself with a bullet faster than the spear can arrive, and together with that, place an explosion that will engulf even Sakuraniwa Rakka as her attack arrives.
 
 *This is...the best that I can do.*
 
@@ -3015,13 +3015,13 @@ And in that moment, as she prepares to carry out her resolve, to bet her life on
 
 It's a gust the likes of which you can only feel on the quietest of nights, soundless, one that makes its presence known despite the silence and yet steeps none in it despite its presence.
 
-That is the sort of thing that appears, cutting between Mizuhi and Sakuraba Rakka, wedging their deaths back apart.
+That is the sort of thing that appears, cutting between Mizuhi and Sakuraniwa Rakka, wedging their deaths back apart.
 
 Black frills drift effortlessly as if caught in a dance, and silver blue hair flowing along with it. That figure had scooped away the pike thrust at Mizuhi with a massive scythe, with the precision of removing a splinter. The tip flies past her head, and embeds itself in the wall behind her.
 
 "...Well well well what's *this*, another challenger?"
 
-Sakuraba Rakka, for the first time, had shown surprise, with how her attack had been turned away.
+Sakuraniwa Rakka, for the first time, had shown surprise, with how her attack had been turned away.
 
 "If you don't mind, I'll have you play along with me from here on."
 
@@ -3033,10 +3033,10 @@ The girl responds to her question as she softly caresses her blade.
 ## 15. No two beautiful girls are ever the same.
 Now, let us briefly discuss what constitutes "the strongest" for Terugami Mizuhi.
 
-At the time she had been asked that directly, she had replied, without needing to think, "Sakuraba Rakka". Blessed with innate talent, and refined through relentless training. She believed that that woman, who had stepped into the domain of humanity's very limits, well and truly deserved to be called the strongest.
+At the time she had been asked that directly, she had replied, without needing to think, "Sakuraniwa Rakka". Blessed with innate talent, and refined through relentless training. She believed that that woman, who had stepped into the domain of humanity's very limits, well and truly deserved to be called the strongest.
 
 So, if that was truly correct.
-If it was *true* that Sakuraba Rakka is the strongest.
+If it was *true* that Sakuraniwa Rakka is the strongest.
 
 Then who does that make this girl, in front of her, who is actively overturning that understanding of strength?
 
@@ -3048,13 +3048,13 @@ Their conversation glints with the clashes of their weapons. A large scythe and 
 
 ...Though, with that said, the scale sits all too in favor of one side.
 
-The girl who named herself Sorcière is whittling Sakuraba Rakka into a corner, as if it is the most natural thing in the world.
+The girl who named herself Sorcière is whittling Sakuraniwa Rakka into a corner, as if it is the most natural thing in the world.
 
-"I'd thought you might be Sakuraba Rakka herself, the person, but it seems you're actually not that much of an opponent."
+"I'd thought you might be Sakuraniwa Rakka herself, the person, but it seems you're actually not that much of an opponent."
 
 "Well, that's just mean!"
 
-Deflecting both insult with humor and scythe with speartip, Sakuraba Rakka stabs forward with her weapon. Wreathed in wind, it delivers a strikingly fast, surefire stab.
+Deflecting both insult with humor and scythe with speartip, Sakuraniwa Rakka stabs forward with her weapon. Wreathed in wind, it delivers a strikingly fast, surefire stab.
 
 And to that, Sorcière adjusts her position ever so slightly, so that the attack breezes past her instead.
 
@@ -3064,7 +3064,7 @@ And to that, Sorcière adjusts her position ever so slightly, so that the attack
 
 The scythe shimmers, disappearing into the darkness. And a moment later, it comes cleaving down.
 
-Sakuraba Rakka's right arm had been severed from her, clean at the shoulder.
+Sakuraniwa Rakka's right arm had been severed from her, clean at the shoulder.
 
 "Oh my, goodness."
 
@@ -3074,7 +3074,7 @@ She makes distance, retreating into the shadows herself and placing her left han
 
 "No, I have to admit damage is being done. ...Yeah, I might actually be in trouble, here?"
 
-Sakuraba Rakka shrugs as she says that, and her eyes finally show no merriment.
+Sakuraniwa Rakka shrugs as she says that, and her eyes finally show no merriment.
 
 "I've been focusing on trying to access whoever you see as the strongest, in your subconscious. But it's just not working. The only thing I can think of is that you have some sort of protective mental barrier up."
 
@@ -3086,7 +3086,7 @@ Sorcière essentially sighs out her reply. And as she once again repels the inco
 
 "Eugh, you can certainly run your mouth."
 
-"Indeed. Though, Sakuraba Rakka wouldn't... the woman herself, at least, wouldn't present in such a manner."
+"Indeed. Though, Sakuraniwa Rakka wouldn't... the woman herself, at least, wouldn't present in such a manner."
 
 "Oh, oh, so *that*'s it, we've met before! In that case, it's so good to see you!"
 
@@ -3100,7 +3100,7 @@ And as it does,
 
 Mizuhi finds that she has been tossed something physical by the other girl, in tandem with the question just now.
 
-She quickly processes that it is her other pistol, that had been sent flying by Sakuraba Rakka earlier, and grips it firmly.
+She quickly processes that it is her other pistol, that had been sent flying by Sakuraniwa Rakka earlier, and grips it firmly.
 
 Sorcière, seeing that, says with a small hint of amazement,
 
@@ -3122,7 +3122,7 @@ The thirst for victory, which she had fully cast aside, rumbles again through he
 
 "Eh?"
 
-Sakuraba Rakka finds Sorcière's large scythe suddenly right in front of her eyes.
+Sakuraniwa Rakka finds Sorcière's large scythe suddenly right in front of her eyes.
 
 As a being created by the dungeon, there is no need for her body to blink, and thus there is only the fundamental delay of vision that remains. ...Or at least, that's how things ought to be, and yet she hadn't even seen the beginning of Sorcière's movement forward.
 
@@ -3138,7 +3138,7 @@ Mizuhi complains from behind, flame spouting from the muzzle of her pistol.
 
 "Bold of you to say that when you're a good-for-nothing who couldn't do anything against me a minute ago!"
 
-"Oh, my, already calling it quits on <ruby>your roleplay<rt>playing at Sakuraba Rakka</rt></ruby>? That's not very proper of you... You really have to see these things through to their end."
+"Oh, my, already calling it quits on <ruby>your roleplay<rt>playing at Sakuraniwa Rakka</rt></ruby>? That's not very proper of you... You really have to see these things through to their end."
 
 The scythe digs into the construct's body, and tears through her midsection.
 
@@ -3148,7 +3148,7 @@ As she possesses no sense for pain, she jumps backward with a wound that normall
 
 "It's pointless, no matter how many times you try. I'm not someone who can lose. After all, I'm the strongest being you can imagine."
 
-"That's wrong. You're not my instructor. And in the end, you're bound by the limits of my imagination just as much as I am. If it were her, if it were Sakuraba Rakka, she'd show me a strength surpassing even my expectations."
+"That's wrong. You're not my instructor. And in the end, you're bound by the limits of my imagination just as much as I am. If it were her, if it were Sakuraniwa Rakka, she'd show me a strength surpassing even my expectations."
 
 "...Then, surpass them I shall!"
 
@@ -3164,7 +3164,7 @@ The bullets roar forth.
 
 Fire and water flow together up in front of her face, where they draw to each other and erupt, spreading mist and vapor in a billowing cloud.
 
-Within that small world created around her, Sakuraba Rakka processes and responds mechanically.
+Within that small world created around her, Sakuraniwa Rakka processes and responds mechanically.
 
 "A very *functional* response."
 
@@ -3184,9 +3184,9 @@ Evasion, counter-attacking—she runs through various other ways to deal with th
 
 "Mm."
 
-Sorcière swings her scythe down, cleaving Sakuraba Rakka in two vertically. She aims to stab back with her pike while the girl is recovering her posture, but water bullets flare through and chip away her hand.
+Sorcière swings her scythe down, cleaving Sakuraniwa Rakka in two vertically. She aims to stab back with her pike while the girl is recovering her posture, but water bullets flare through and chip away her hand.
 
-With her response and hand now gone, Sorcière brings around the handle of her scythe, knocking the woman's gaze upwards with a firm blow. Sakuraba Rakka's eyes are blessed with another cloud of fiery bullets bursting.
+With her response and hand now gone, Sorcière brings around the handle of her scythe, knocking the woman's gaze upwards with a firm blow. Sakuraniwa Rakka's eyes are blessed with another cloud of fiery bullets bursting.
 
 "!? Trying to seal my vision, are you. I see."
 
@@ -3202,11 +3202,11 @@ She says that more to herself than the other two, as if it's reassurance. Her op
 
 It's the sort of nonchalance that you only see when someone's confident they've already won.
 
-"—Do you still remain bound by the delusion that your self is Sakuraba Rakka?"
+"—Do you still remain bound by the delusion that your self is Sakuraniwa Rakka?"
 
 A voice rings from within the darkness. It's a clear voice. It's Sorcière's.
 
-"...I *am* Sakuraba Rakka."
+"...I *am* Sakuraniwa Rakka."
 
 "Self-suggestion, is it? I feel sorry for you."
 
@@ -3244,7 +3244,7 @@ And a dense flow of magic converges into each.
 
 "You...monster."
 
-"If you're Sakuraba Rakka, you ought to show a warm smile instead."
+"If you're Sakuraniwa Rakka, you ought to show a warm smile instead."
 
 Sorcière whispers that comment.
 
@@ -3268,13 +3268,13 @@ Sorcière places her hand around the grip of her weapon. The weapon shivers sile
 
 "As you say. <ruby><i>Sorcière</i><rt>Star-Reader Staff</rt></ruby>."
 
-As she calls out the name, the triggers are pulled. A silver light streams forth, enwrapped by spiraling red and blue. This convergence, the density of the mana holding the power to obliterate any average dungeon construct or monster in under a single second, rapidly encroaches on Sakuraba Rakka.
+As she calls out the name, the triggers are pulled. A silver light streams forth, enwrapped by spiraling red and blue. This convergence, the density of the mana holding the power to obliterate any average dungeon construct or monster in under a single second, rapidly encroaches on Sakuraniwa Rakka.
 
 "You think this could get me to admit defeat!?"
 
 She screams out, and summons her wind ability to the utmost she ever has. It surpasses her previous limits, and draws out the dungeon as a resource from directly around her, forming a strong barrier around her.
 
-"I! I am Sakuraba Rakka! Which makes me the strongest!"
+"I! I am Sakuraniwa Rakka! Which makes me the strongest!"
 
 Only one moment remains before the Convergence Bombardment makes contact with the barrier.
 
@@ -3284,17 +3284,17 @@ However, it does not even take a tenth of a second for the blast to obliterate t
 
 "...Ah, man."
 
-An offhand comment—that is the only aspect in which she was able to perfectly replicate Sakuraba Rakka.
+An offhand comment—that is the only aspect in which she was able to perfectly replicate Sakuraniwa Rakka.
 
 "Well done, you two."
 
-And just like that, the form of Sakuraba Rakka disappears completely, washed away by the light of their magic.
+And just like that, the form of Sakuraniwa Rakka disappears completely, washed away by the light of their magic.
 
 
 
 The only thing that remains in the wake is the burned, slashed, melted remains of the operating rooms, the dungeon's core, and a pile of MA crystals.
 
-Every trace of what had templated itself from Sakuraba Rakka has entirely vanished.
+Every trace of what had templated itself from Sakuraniwa Rakka has entirely vanished.
 
 "It's...over."
 
